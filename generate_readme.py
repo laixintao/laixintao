@@ -22,9 +22,14 @@ def fetch_image():
     a_tag = presentation_table.xpath(".//a[@class='image']")[0]
     relative_link = a_tag.get("href")
     title = a_tag.get("title")
-    image_src = a_tag.xpath("./img/@src")[0]
-    print(f"{relative_link} {title} {image_src}")
-    return relative_link, title, image_src
+    image_src = a_tag.xpath("./img/@srcset")[0]
+    try:
+        best_image = image_src.split(" ")[-2]
+    except:
+        best_image = image_src.split(" ")[0]
+    print(f"{relative_link} {title}, image srcset:{image_src}")
+    print(f"best image: {best_image}")
+    return relative_link, title, best_image[2:]
 
 
 relative_link, title, image_src = fetch_image()
@@ -35,7 +40,9 @@ with open("readme.md", "r") as old_readme:
         sys.exit()
 
 new_readme = README.format(
-    title=title, image_src=image_src, wiki_link="wikipedia.org" + relative_link
+    title=title,
+    image_src=image_src,
+    wiki_link="wikipedia.org" + relative_link,
 )
 
 print("new readme file generate... save...")
