@@ -29,7 +29,7 @@ def fetch_image():
         best_image = image_src.split(" ")[0]
     print(f"{relative_link} {title}, image srcset:{image_src}")
     print(f"best image: {best_image}")
-    return relative_link, title, best_image[2:]
+    return relative_link, title, "https://" + best_image[2:]
 
 
 relative_link, title, image_src = fetch_image()
