@@ -34,15 +34,15 @@ def fetch_image():
 
 relative_link, title, image_src = fetch_image()
 
-with open("readme.md", "r") as old_readme:
-    if title in old_readme.read():
-        print("Todays featured image not change!")
-        sys.exit()
+# with open("readme.md", "r") as old_readme:
+#     if title in old_readme.read():
+#         print("Todays featured image not change!")
+#         sys.exit()
 
 new_readme = README.format(
     title=title,
     image_src=image_src,
-    wiki_link="wikipedia.org" + relative_link,
+    wiki_link="https://wikipedia.org" + relative_link,
 )
 
 print("new readme file generate... save...")
