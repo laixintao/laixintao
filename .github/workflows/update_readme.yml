@@ -1,0 +1,29 @@
+jobs:
+  on:
+    schedule:
+      # * is a special character in YAML so you have to quote this string
+      - cron:  '*/5 * * * *'
+  build:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@master
+      with:
+        persist-credentials: false # otherwise, the token used is the GITHUB_TOKEN, instead of your personal token
+        fetch-depth: 0 # otherwise, you will failed to push refs to dest repo
+    - uses: actions/setup-python@v1
+      with:
+        python-version: 3.7
+        architecture: 'x64'
+    - name: Create local changes
+      run: |
+        pip install -r requirements.txt
+        python generate_readme.py
+    - name: Commit files
+      run: |
+        git config --local user.email "laixintaoo@gmail.com"
+        git config --local user.name "laixintao(bot)"
+        git commit -m "Update today's featured image on $(date +%Y-%m-%d)" -a
+    - name: Push changes
+      uses: ad-m/github-push-action@master
+      with:
+        github_token: ${{ secrets.GITHUB_TOKEN }}
