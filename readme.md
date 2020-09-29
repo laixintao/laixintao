@@ -1,4 +1,4 @@
 
-![Pomegranate juice](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Pomegranate_Juice_%282019%29.jpg/700px-Pomegranate_Juice_%282019%29.jpg)
+![Silver certificate](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6e/US-%24500-SC-1878-Fr-345a.jpg/800px-US-%24500-SC-1878-Fr-345a.jpg)
 
-*[Pomegranate juice](https://wikipedia.org/wiki/File:Pomegranate_Juice_(2019).jpg)*
+*[Silver certificate](https://wikipedia.org/wiki/File:US-$500-SC-1878-Fr-345a.jpg)*
