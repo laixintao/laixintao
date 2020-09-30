@@ -23,10 +23,7 @@ def fetch_image():
     relative_link = a_tag.get("href")
     title = a_tag.get("title")
     image_src = a_tag.xpath("./img/@srcset")[0]
-    try:
-        best_image = image_src.split(" ")[-2]
-    except:
-        best_image = image_src.split(" ")[0]
+    best_image = image_src.split(" ")[0]
     print(f"{relative_link} {title}, image srcset:{image_src}")
     print(f"best image: {best_image}")
     return relative_link, title, "https://" + best_image[2:]
