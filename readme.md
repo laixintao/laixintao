@@ -1,4 +1,4 @@
 
-![Jacob Cornelisz van Oostsanen](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Dirck_Jacobsz_-_Jacob_Cornelisz._van_Oostsanen_Painting_a_Portrait_of_His_Wife_-_Google_Art_Project.jpg/525px-Dirck_Jacobsz_-_Jacob_Cornelisz._van_Oostsanen_Painting_a_Portrait_of_His_Wife_-_Google_Art_Project.jpg)
+![Long Island City](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Long_Island_City_New_York_May_2015_panorama_3.jpg/750px-Long_Island_City_New_York_May_2015_panorama_3.jpg)
 
-*[Jacob Cornelisz van Oostsanen](https://wikipedia.org/wiki/File:Dirck_Jacobsz_-_Jacob_Cornelisz._van_Oostsanen_Painting_a_Portrait_of_His_Wife_-_Google_Art_Project.jpg)*
+*[Long Island City](https://wikipedia.org/wiki/File:Long_Island_City_New_York_May_2015_panorama_3.jpg)*
