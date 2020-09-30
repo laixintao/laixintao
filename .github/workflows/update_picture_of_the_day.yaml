@@ -1,9 +1,8 @@
 name: update picture of the day.
 
 on:
-  push:
   schedule:
-    - cron: "21 * * * *"
+    - cron: "30 * * * *"
 
 jobs:
   build:
