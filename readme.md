@@ -1,4 +1,4 @@
 
-![Silver certificate](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6e/US-%24500-SC-1878-Fr-345a.jpg/800px-US-%24500-SC-1878-Fr-345a.jpg)
+![Jacob Cornelisz van Oostsanen](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Dirck_Jacobsz_-_Jacob_Cornelisz._van_Oostsanen_Painting_a_Portrait_of_His_Wife_-_Google_Art_Project.jpg/700px-Dirck_Jacobsz_-_Jacob_Cornelisz._van_Oostsanen_Painting_a_Portrait_of_His_Wife_-_Google_Art_Project.jpg)
 
-*[Silver certificate](https://wikipedia.org/wiki/File:US-$500-SC-1878-Fr-345a.jpg)*
+*[Jacob Cornelisz van Oostsanen](https://wikipedia.org/wiki/File:Dirck_Jacobsz_-_Jacob_Cornelisz._van_Oostsanen_Painting_a_Portrait_of_His_Wife_-_Google_Art_Project.jpg)*
