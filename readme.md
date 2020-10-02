@@ -1,4 +1,4 @@
 
-![White-necked laughingthrush](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Garrulax_strepitans_-_Mae_Wong.jpg/600px-Garrulax_strepitans_-_Mae_Wong.jpg)
+![Lake Palčje](https://upload.wikimedia.org/wikipedia/commons/thumb/4/44/Palskopanorama3.jpg/900px-Palskopanorama3.jpg)
 
-*[White-necked laughingthrush](https://wikipedia.org/wiki/File:Garrulax_strepitans_-_Mae_Wong.jpg)*
+*[Lake Palčje](https://wikipedia.org/wiki/File:Palskopanorama3.jpg)*
