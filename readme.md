@@ -1,4 +1,4 @@
 
-![Frederick Douglass](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Frederick_Douglass_%28circa_1879%29.jpg/450px-Frederick_Douglass_%28circa_1879%29.jpg)
+![The Tortoise Trainer](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4a/Osman_Hamdi_Bey_-_The_Tortoise_Trainer_-_Google_Art_Project.jpg/450px-Osman_Hamdi_Bey_-_The_Tortoise_Trainer_-_Google_Art_Project.jpg)
 
-*[Frederick Douglass](https://wikipedia.org/wiki/File:Frederick_Douglass_(circa_1879).jpg)*
+*[The Tortoise Trainer](https://wikipedia.org/wiki/File:Osman_Hamdi_Bey_-_The_Tortoise_Trainer_-_Google_Art_Project.jpg)*
