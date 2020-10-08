@@ -1,4 +1,4 @@
 
-![La Schiavona](https://upload.wikimedia.org/wikipedia/commons/thumb/0/07/Titian_-_Portrait_of_a_Lady_%28%27La_Schiavona%27%29_-_Google_Art_Project.jpg/525px-Titian_-_Portrait_of_a_Lady_%28%27La_Schiavona%27%29_-_Google_Art_Project.jpg)
+![Eucalyptus](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0f/Sawfly_larvae_-_Pergidae_sp.jpg/600px-Sawfly_larvae_-_Pergidae_sp.jpg)
 
-*[La Schiavona](https://wikipedia.org/wiki/File:Titian_-_Portrait_of_a_Lady_(%27La_Schiavona%27)_-_Google_Art_Project.jpg)*
+*[Eucalyptus](https://wikipedia.org/wiki/File:Sawfly_larvae_-_Pergidae_sp.jpg)*
