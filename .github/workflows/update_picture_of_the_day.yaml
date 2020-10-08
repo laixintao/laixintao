@@ -2,7 +2,7 @@ name: update picture of the day.
 
 on:
   schedule:
-    - cron: "30 * * * *"
+    - cron: "1 1 * * *"
 
 jobs:
   build:
