@@ -1,4 +1,4 @@
-name: Update.
+name: update picture of the day.
 
 on:
   schedule:
