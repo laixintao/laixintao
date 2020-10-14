@@ -1,4 +1,4 @@
 
-![Götterdämmerung](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/Max_Br%C3%BCckner_-_Otto_Henning_-_Richard_Wagner_-_Final_scene_of_G%C3%B6tterd%C3%A4mmerung.jpg/600px-Max_Br%C3%BCckner_-_Otto_Henning_-_Richard_Wagner_-_Final_scene_of_G%C3%B6tterd%C3%A4mmerung.jpg)
+![Joséphine Fodor](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ca/Jean-Baptiste_Singry_-_Jos%C3%A9phine_Mainvielle-Fodor.jpg/450px-Jean-Baptiste_Singry_-_Jos%C3%A9phine_Mainvielle-Fodor.jpg)
 
-*[Götterdämmerung](https://wikipedia.org/wiki/File:Max_Br%C3%BCckner_-_Otto_Henning_-_Richard_Wagner_-_Final_scene_of_G%C3%B6tterd%C3%A4mmerung.jpg)*
+*[Joséphine Fodor](https://wikipedia.org/wiki/File:Jean-Baptiste_Singry_-_Jos%C3%A9phine_Mainvielle-Fodor.jpg)*
