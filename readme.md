@@ -1,4 +1,4 @@
 
-![Joséphine Fodor](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ca/Jean-Baptiste_Singry_-_Jos%C3%A9phine_Mainvielle-Fodor.jpg/450px-Jean-Baptiste_Singry_-_Jos%C3%A9phine_Mainvielle-Fodor.jpg)
+![Jessie Bonstelle](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Jessie_Bonstelle%2C_Mishkin%2C_N.Y._-_Mishkin_LCCN2014684961_%28restoration%29.jpg/450px-Jessie_Bonstelle%2C_Mishkin%2C_N.Y._-_Mishkin_LCCN2014684961_%28restoration%29.jpg)
 
-*[Joséphine Fodor](https://wikipedia.org/wiki/File:Jean-Baptiste_Singry_-_Jos%C3%A9phine_Mainvielle-Fodor.jpg)*
+*[Jessie Bonstelle](https://wikipedia.org/wiki/File:Jessie_Bonstelle,_Mishkin,_N.Y._-_Mishkin_LCCN2014684961_(restoration).jpg)*
