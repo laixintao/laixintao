@@ -1,4 +1,4 @@
 
-![Notre-Dame Basilica](https://upload.wikimedia.org/wikipedia/commons/thumb/6/65/Notre-Dame_Basilica_Interior%2C_Montreal%2C_Canada_-_Diliff.jpg/750px-Notre-Dame_Basilica_Interior%2C_Montreal%2C_Canada_-_Diliff.jpg)
+![Surrender of General Burgoyne](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/BEP-GIRSCH-Surrender_of_General_Burgoyne_%28Trumbull%29.jpg/450px-BEP-GIRSCH-Surrender_of_General_Burgoyne_%28Trumbull%29.jpg)
 
-*[Notre-Dame Basilica](https://wikipedia.org/wiki/File:Notre-Dame_Basilica_Interior,_Montreal,_Canada_-_Diliff.jpg)*
+*[Surrender of General Burgoyne](https://wikipedia.org/wiki/File:BEP-GIRSCH-Surrender_of_General_Burgoyne_(Trumbull).jpg)*
