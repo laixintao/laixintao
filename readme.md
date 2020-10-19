@@ -1,4 +1,4 @@
 
-![Surrender of General Burgoyne](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/BEP-GIRSCH-Surrender_of_General_Burgoyne_%28Trumbull%29.jpg/450px-BEP-GIRSCH-Surrender_of_General_Burgoyne_%28Trumbull%29.jpg)
+![Trichoglottis atropurpurea](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b8/Dark_purple_Trichoglottis_%2870213s%29c.jpg/600px-Dark_purple_Trichoglottis_%2870213s%29c.jpg)
 
-*[Surrender of General Burgoyne](https://wikipedia.org/wiki/File:BEP-GIRSCH-Surrender_of_General_Burgoyne_(Trumbull).jpg)*
+*[Trichoglottis atropurpurea](https://wikipedia.org/wiki/File:Dark_purple_Trichoglottis_(70213s)c.jpg)*
