@@ -1,4 +1,4 @@
 
-![Trichoglottis atropurpurea](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b8/Dark_purple_Trichoglottis_%2870213s%29c.jpg/600px-Dark_purple_Trichoglottis_%2870213s%29c.jpg)
+![Tsjuder](https://upload.wikimedia.org/wikipedia/commons/thumb/2/29/Tsjuder%2C_Jan-Erik_%E2%80%9ENag%E2%80%9C_Rom%C3%B8ren_at_Party.San_Metal_Open_Air_2013.jpg/525px-Tsjuder%2C_Jan-Erik_%E2%80%9ENag%E2%80%9C_Rom%C3%B8ren_at_Party.San_Metal_Open_Air_2013.jpg)
 
-*[Trichoglottis atropurpurea](https://wikipedia.org/wiki/File:Dark_purple_Trichoglottis_(70213s)c.jpg)*
+*[Tsjuder](https://wikipedia.org/wiki/File:Tsjuder,_Jan-Erik_%E2%80%9ENag%E2%80%9C_Rom%C3%B8ren_at_Party.San_Metal_Open_Air_2013.jpg)*
