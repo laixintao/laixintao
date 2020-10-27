@@ -1,4 +1,4 @@
 
-![Johann Strauss II](https://upload.wikimedia.org/wikipedia/commons/thumb/6/67/Johann_Strauss_II_by_Fritz_Luckhardt.jpg/450px-Johann_Strauss_II_by_Fritz_Luckhardt.jpg)
+![Naqsh-e Rostam](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Naghsh-e_rostam%2C_Ir%C3%A1n%2C_2016-09-24%2C_DD_20-24_PAN.jpg/900px-Naghsh-e_rostam%2C_Ir%C3%A1n%2C_2016-09-24%2C_DD_20-24_PAN.jpg)
 
-*[Johann Strauss II](https://wikipedia.org/wiki/File:Johann_Strauss_II_by_Fritz_Luckhardt.jpg)*
+*[Naqsh-e Rostam](https://wikipedia.org/wiki/File:Naghsh-e_rostam,_Ir%C3%A1n,_2016-09-24,_DD_20-24_PAN.jpg)*
