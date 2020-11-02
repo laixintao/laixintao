@@ -1,4 +1,4 @@
 
-![Candy apple](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Tastee-Candy-Apple-Red-Caramel-wPeanuts.jpg/375px-Tastee-Candy-Apple-Red-Caramel-wPeanuts.jpg)
+![Khalili Collection of Japanese Art](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Khalili_Collections_A_Composite_Imaginary_View_of_Japan.jpg/525px-Khalili_Collections_A_Composite_Imaginary_View_of_Japan.jpg)
 
-*[Candy apple](https://wikipedia.org/wiki/File:Tastee-Candy-Apple-Red-Caramel-wPeanuts.jpg)*
+*[Khalili Collection of Japanese Art](https://wikipedia.org/wiki/File:Khalili_Collections_A_Composite_Imaginary_View_of_Japan.jpg)*
