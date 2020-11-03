@@ -1,4 +1,4 @@
 
-![Khalili Collection of Japanese Art](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Khalili_Collections_A_Composite_Imaginary_View_of_Japan.jpg/525px-Khalili_Collections_A_Composite_Imaginary_View_of_Japan.jpg)
+![Cassini–Huygens](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Saturn_during_Equinox.jpg/750px-Saturn_during_Equinox.jpg)
 
-*[Khalili Collection of Japanese Art](https://wikipedia.org/wiki/File:Khalili_Collections_A_Composite_Imaginary_View_of_Japan.jpg)*
+*[Cassini–Huygens](https://wikipedia.org/wiki/File:Saturn_during_Equinox.jpg)*
