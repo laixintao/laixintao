@@ -1,4 +1,4 @@
 
-![Cassini–Huygens](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Saturn_during_Equinox.jpg/750px-Saturn_during_Equinox.jpg)
+![1966 flood of the Arno](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/National_Library_manuscripts_being_washed_in_Florence_after_the_1966_flood_of_the_Arno_-_UNESCO_-_PHOTO_0000001407_0001_-_Restoration.jpg/600px-National_Library_manuscripts_being_washed_in_Florence_after_the_1966_flood_of_the_Arno_-_UNESCO_-_PHOTO_0000001407_0001_-_Restoration.jpg)
 
-*[Cassini–Huygens](https://wikipedia.org/wiki/File:Saturn_during_Equinox.jpg)*
+*[1966 flood of the Arno](https://wikipedia.org/wiki/File:National_Library_manuscripts_being_washed_in_Florence_after_the_1966_flood_of_the_Arno_-_UNESCO_-_PHOTO_0000001407_0001_-_Restoration.jpg)*
