@@ -1,4 +1,4 @@
 
-![Le comte Ory](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Le_comte_Ory_-_Dubois_%26_chez_Martinet_-_Final_scene.jpg/600px-Le_comte_Ory_-_Dubois_%26_chez_Martinet_-_Final_scene.jpg)
+![Ida Tarbell](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Ida_M._Tarbell_crop.jpg/450px-Ida_M._Tarbell_crop.jpg)
 
-*[Le comte Ory](https://wikipedia.org/wiki/File:Le_comte_Ory_-_Dubois_%26_chez_Martinet_-_Final_scene.jpg)*
+*[Ida Tarbell](https://wikipedia.org/wiki/File:Ida_M._Tarbell_crop.jpg)*
