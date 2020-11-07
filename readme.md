@@ -1,4 +1,4 @@
 
-![Ida Tarbell](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Ida_M._Tarbell_crop.jpg/450px-Ida_M._Tarbell_crop.jpg)
+![Iceberg](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Iceberg_in_the_Arctic_with_its_underside_exposed.jpg/600px-Iceberg_in_the_Arctic_with_its_underside_exposed.jpg)
 
-*[Ida Tarbell](https://wikipedia.org/wiki/File:Ida_M._Tarbell_crop.jpg)*
+*[Iceberg](https://wikipedia.org/wiki/File:Iceberg_in_the_Arctic_with_its_underside_exposed.jpg)*
