@@ -1,4 +1,4 @@
 
-![Iceberg](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Iceberg_in_the_Arctic_with_its_underside_exposed.jpg/600px-Iceberg_in_the_Arctic_with_its_underside_exposed.jpg)
+![Cirsium vulgare](https://upload.wikimedia.org/wikipedia/commons/thumb/3/33/Mooie_bloeiwijze_van_een_Speerdistel_%28Cirsium_vulgare%29_03.jpg/450px-Mooie_bloeiwijze_van_een_Speerdistel_%28Cirsium_vulgare%29_03.jpg)
 
-*[Iceberg](https://wikipedia.org/wiki/File:Iceberg_in_the_Arctic_with_its_underside_exposed.jpg)*
+*[Cirsium vulgare](https://wikipedia.org/wiki/File:Mooie_bloeiwijze_van_een_Speerdistel_(Cirsium_vulgare)_03.jpg)*
