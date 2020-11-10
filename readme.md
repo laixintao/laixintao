@@ -1,4 +1,4 @@
 
-![St Cyprian's, Clarence Gate](https://upload.wikimedia.org/wikipedia/commons/thumb/5/56/St_Cyprian%27s_Church_Sanctuary%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg/450px-St_Cyprian%27s_Church_Sanctuary%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg)
+![The Arcadian or Pastoral State](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/Cole_Thomas_The_Course_of_Empire_The_Arcadian_or_Pastoral_State_1836.jpg/750px-Cole_Thomas_The_Course_of_Empire_The_Arcadian_or_Pastoral_State_1836.jpg)
 
-*[St Cyprian's, Clarence Gate](https://wikipedia.org/wiki/File:St_Cyprian%27s_Church_Sanctuary,_Clarence_Gate,_London,_UK_-_Diliff.jpg)*
+*[The Arcadian or Pastoral State](https://wikipedia.org/wiki/File:Cole_Thomas_The_Course_of_Empire_The_Arcadian_or_Pastoral_State_1836.jpg)*
