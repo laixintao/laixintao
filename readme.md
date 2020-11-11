@@ -1,4 +1,4 @@
 
-![The Arcadian or Pastoral State](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/Cole_Thomas_The_Course_of_Empire_The_Arcadian_or_Pastoral_State_1836.jpg/750px-Cole_Thomas_The_Course_of_Empire_The_Arcadian_or_Pastoral_State_1836.jpg)
+![Chesme Column](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/RUS-2016-Pushkin-Catherine_Park-Chesme_Column.jpg/450px-RUS-2016-Pushkin-Catherine_Park-Chesme_Column.jpg)
 
-*[The Arcadian or Pastoral State](https://wikipedia.org/wiki/File:Cole_Thomas_The_Course_of_Empire_The_Arcadian_or_Pastoral_State_1836.jpg)*
+*[Chesme Column](https://wikipedia.org/wiki/File:RUS-2016-Pushkin-Catherine_Park-Chesme_Column.jpg)*
