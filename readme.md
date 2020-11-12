@@ -1,4 +1,4 @@
 
-![Chesme Column](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/RUS-2016-Pushkin-Catherine_Park-Chesme_Column.jpg/450px-RUS-2016-Pushkin-Catherine_Park-Chesme_Column.jpg)
+![Harold H. Piffard](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/H._Piffard_-_The_Thin_Red_Line_-_restoration.jpg/600px-H._Piffard_-_The_Thin_Red_Line_-_restoration.jpg)
 
-*[Chesme Column](https://wikipedia.org/wiki/File:RUS-2016-Pushkin-Catherine_Park-Chesme_Column.jpg)*
+*[Harold H. Piffard](https://wikipedia.org/wiki/File:H._Piffard_-_The_Thin_Red_Line_-_restoration.jpg)*
