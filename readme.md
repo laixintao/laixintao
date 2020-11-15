@@ -1,4 +1,4 @@
 
-![Round ribbontail ray](https://upload.wikimedia.org/wikipedia/commons/thumb/0/08/Round_ribbontail_ray_from_Lakshadweep_JJH_edit.jpg/600px-Round_ribbontail_ray_from_Lakshadweep_JJH_edit.jpg)
+![The Hunting of the Snark](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_2.jpg/450px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_2.jpg)
 
-*[Round ribbontail ray](https://wikipedia.org/wiki/File:Round_ribbontail_ray_from_Lakshadweep_JJH_edit.jpg)*
+*[The Hunting of the Snark](https://wikipedia.org/wiki/File:Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_2.jpg)*
