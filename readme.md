@@ -1,4 +1,4 @@
 
-![Apollo and Daphne](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Apollo_and_Daphne_%28Bernini%29_%28cropped%29.jpg/450px-Apollo_and_Daphne_%28Bernini%29_%28cropped%29.jpg)
+![Japanese government-issued rupee in Burma](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/BUR-17b-Burma-Japanese_Occupation-100_Rupees_ND_%281944%29.jpg/525px-BUR-17b-Burma-Japanese_Occupation-100_Rupees_ND_%281944%29.jpg)
 
-*[Apollo and Daphne](https://wikipedia.org/wiki/File:Apollo_and_Daphne_(Bernini)_(cropped).jpg)*
+*[Japanese government-issued rupee in Burma](https://wikipedia.org/wiki/File:BUR-17b-Burma-Japanese_Occupation-100_Rupees_ND_(1944).jpg)*
