@@ -1,4 +1,4 @@
 
-![Adolf Mosengel](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Adolf_Mosengel_Dorf_in_den_Berner_Alpen.jpg/450px-Adolf_Mosengel_Dorf_in_den_Berner_Alpen.jpg)
+![La forza del destino](https://upload.wikimedia.org/wikipedia/commons/thumb/1/15/Alexandre_Charles_Lecocq_-_Giuseppe_Verdi_-_La_forza_del_destino.jpg/525px-Alexandre_Charles_Lecocq_-_Giuseppe_Verdi_-_La_forza_del_destino.jpg)
 
-*[Adolf Mosengel](https://wikipedia.org/wiki/File:Adolf_Mosengel_Dorf_in_den_Berner_Alpen.jpg)*
+*[La forza del destino](https://wikipedia.org/wiki/File:Alexandre_Charles_Lecocq_-_Giuseppe_Verdi_-_La_forza_del_destino.jpg)*
