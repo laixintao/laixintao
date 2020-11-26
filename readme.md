@@ -1,4 +1,4 @@
 
-![Bird-cherry ermine](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/Bird-cherry_ermine_moth_%28Yponomeuta_evonymella%29_caterpillars.jpg/600px-Bird-cherry_ermine_moth_%28Yponomeuta_evonymella%29_caterpillars.jpg)
+![Hans Baldung](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Hans_Baldung_Grien_-_Portrait_of_a_Man_-_Google_Art_Project.jpg/450px-Hans_Baldung_Grien_-_Portrait_of_a_Man_-_Google_Art_Project.jpg)
 
-*[Bird-cherry ermine](https://wikipedia.org/wiki/File:Bird-cherry_ermine_moth_(Yponomeuta_evonymella)_caterpillars.jpg)*
+*[Hans Baldung](https://wikipedia.org/wiki/File:Hans_Baldung_Grien_-_Portrait_of_a_Man_-_Google_Art_Project.jpg)*
