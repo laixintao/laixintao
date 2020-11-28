@@ -1,4 +1,4 @@
 
-![Jérusalem](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c8/Alexandre_Lacauchie_-_Gilbert_Duprez_as_Gaston_in_Verdi%27s_J%C3%A9rusalem.jpg/450px-Alexandre_Lacauchie_-_Gilbert_Duprez_as_Gaston_in_Verdi%27s_J%C3%A9rusalem.jpg)
+![Urania's Mirror](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Sidney_Hall_-_Urania%27s_Mirror_-_Aquarius%2C_Piscis_Australis_%26_Ballon_Aerostatique.jpg/825px-Sidney_Hall_-_Urania%27s_Mirror_-_Aquarius%2C_Piscis_Australis_%26_Ballon_Aerostatique.jpg)
 
-*[Jérusalem](https://wikipedia.org/wiki/File:Alexandre_Lacauchie_-_Gilbert_Duprez_as_Gaston_in_Verdi%27s_J%C3%A9rusalem.jpg)*
+*[Urania's Mirror](https://wikipedia.org/wiki/File:Sidney_Hall_-_Urania%27s_Mirror_-_Aquarius,_Piscis_Australis_%26_Ballon_Aerostatique.jpg)*
