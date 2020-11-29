@@ -1,4 +1,4 @@
 
-![Urania's Mirror](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Sidney_Hall_-_Urania%27s_Mirror_-_Aquarius%2C_Piscis_Australis_%26_Ballon_Aerostatique.jpg/825px-Sidney_Hall_-_Urania%27s_Mirror_-_Aquarius%2C_Piscis_Australis_%26_Ballon_Aerostatique.jpg)
+![Wrocław](https://upload.wikimedia.org/wikipedia/commons/thumb/7/70/Wroclaw-Rathaus.jpg/525px-Wroclaw-Rathaus.jpg)
 
-*[Urania's Mirror](https://wikipedia.org/wiki/File:Sidney_Hall_-_Urania%27s_Mirror_-_Aquarius,_Piscis_Australis_%26_Ballon_Aerostatique.jpg)*
+*[Wrocław](https://wikipedia.org/wiki/File:Wroclaw-Rathaus.jpg)*
