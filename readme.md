@@ -1,4 +1,4 @@
 
-![La favorite](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Gilbert_Duprez_%26_Rosine_Stoltz_in_Donizetti%27s_La_Favorite.jpg/525px-Gilbert_Duprez_%26_Rosine_Stoltz_in_Donizetti%27s_La_Favorite.jpg)
+![Mantled guereza](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/Abyssinian_black-and-white_colobus_%28Colobus_guereza_guereza%29_male_head.jpg/525px-Abyssinian_black-and-white_colobus_%28Colobus_guereza_guereza%29_male_head.jpg)
 
-*[La favorite](https://wikipedia.org/wiki/File:Gilbert_Duprez_%26_Rosine_Stoltz_in_Donizetti%27s_La_Favorite.jpg)*
+*[Mantled guereza](https://wikipedia.org/wiki/File:Abyssinian_black-and-white_colobus_(Colobus_guereza_guereza)_male_head.jpg)*
