@@ -1,4 +1,4 @@
 
-![Mantled guereza](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/Abyssinian_black-and-white_colobus_%28Colobus_guereza_guereza%29_male_head.jpg/525px-Abyssinian_black-and-white_colobus_%28Colobus_guereza_guereza%29_male_head.jpg)
+![Santa Maria della Vittoria](https://upload.wikimedia.org/wikipedia/commons/thumb/7/72/Santa_Maria_della_Vittoria_in_Rome_-_Interior.jpg/600px-Santa_Maria_della_Vittoria_in_Rome_-_Interior.jpg)
 
-*[Mantled guereza](https://wikipedia.org/wiki/File:Abyssinian_black-and-white_colobus_(Colobus_guereza_guereza)_male_head.jpg)*
+*[Santa Maria della Vittoria](https://wikipedia.org/wiki/File:Santa_Maria_della_Vittoria_in_Rome_-_Interior.jpg)*
