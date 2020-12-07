@@ -1,4 +1,4 @@
 
-![Santa Maria della Vittoria](https://upload.wikimedia.org/wikipedia/commons/thumb/7/72/Santa_Maria_della_Vittoria_in_Rome_-_Interior.jpg/600px-Santa_Maria_della_Vittoria_in_Rome_-_Interior.jpg)
+![The Day Dream](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Dante_Gabriel_Rossetti_-_The_Day_Dream_-_Google_Art_Project.jpg/450px-Dante_Gabriel_Rossetti_-_The_Day_Dream_-_Google_Art_Project.jpg)
 
-*[Santa Maria della Vittoria](https://wikipedia.org/wiki/File:Santa_Maria_della_Vittoria_in_Rome_-_Interior.jpg)*
+*[The Day Dream](https://wikipedia.org/wiki/File:Dante_Gabriel_Rossetti_-_The_Day_Dream_-_Google_Art_Project.jpg)*
