@@ -1,4 +1,4 @@
 
-![Wat Arun](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b7/The_sculptures_of_two_mythical_giant_demons%2C_Thotsakan_and_Sahatsadecha%2C_guarding_the_eastern_gate_of_the_main_chapel_of_Wat_Arun%2C_Bangkok.jpg/600px-The_sculptures_of_two_mythical_giant_demons%2C_Thotsakan_and_Sahatsadecha%2C_guarding_the_eastern_gate_of_the_main_chapel_of_Wat_Arun%2C_Bangkok.jpg)
+![Lies Noor](https://upload.wikimedia.org/wikipedia/commons/thumb/d/de/Lies_Noor_%28c._1956%29%2C_Djakartawood_%28no_name%29.jpg/450px-Lies_Noor_%28c._1956%29%2C_Djakartawood_%28no_name%29.jpg)
 
-*[Wat Arun](https://wikipedia.org/wiki/File:The_sculptures_of_two_mythical_giant_demons,_Thotsakan_and_Sahatsadecha,_guarding_the_eastern_gate_of_the_main_chapel_of_Wat_Arun,_Bangkok.jpg)*
+*[Lies Noor](https://wikipedia.org/wiki/File:Lies_Noor_(c._1956),_Djakartawood_(no_name).jpg)*
