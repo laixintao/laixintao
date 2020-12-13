@@ -1,4 +1,4 @@
 
-![Rory Kennedy](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/Rory_Kennedy_2011.jpg/525px-Rory_Kennedy_2011.jpg)
+![1835 gold Indian two-mohur coin, minted in the reign of King William IV](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/India_1835_2_Mohurs.jpg/525px-India_1835_2_Mohurs.jpg)
 
-*[Rory Kennedy](https://wikipedia.org/wiki/File:Rory_Kennedy_2011.jpg)*
+*[1835 gold Indian two-mohur coin, minted in the reign of King William IV](https://wikipedia.org/wiki/File:India_1835_2_Mohurs.jpg)*
