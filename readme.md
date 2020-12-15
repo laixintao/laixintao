@@ -1,4 +1,4 @@
 
-![1835 gold Indian two-mohur coin, minted in the reign of King William IV](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/India_1835_2_Mohurs.jpg/525px-India_1835_2_Mohurs.jpg)
+![Charles IV of Spain and His Family](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/La_familia_de_Carlos_IV.jpg/525px-La_familia_de_Carlos_IV.jpg)
 
-*[1835 gold Indian two-mohur coin, minted in the reign of King William IV](https://wikipedia.org/wiki/File:India_1835_2_Mohurs.jpg)*
+*[Charles IV of Spain and His Family](https://wikipedia.org/wiki/File:La_familia_de_Carlos_IV.jpg)*
