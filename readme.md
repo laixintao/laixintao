@@ -1,4 +1,4 @@
 
-![Chelsea Manning](https://upload.wikimedia.org/wikipedia/commons/thumb/3/31/Chelsea_Manning_on_18_May_2017.jpg/450px-Chelsea_Manning_on_18_May_2017.jpg)
+![English Gothic architecture](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/The_Cloisters_at_Gloucester_Cathedral.jpg/750px-The_Cloisters_at_Gloucester_Cathedral.jpg)
 
-*[Chelsea Manning](https://wikipedia.org/wiki/File:Chelsea_Manning_on_18_May_2017.jpg)*
+*[English Gothic architecture](https://wikipedia.org/wiki/File:The_Cloisters_at_Gloucester_Cathedral.jpg)*
