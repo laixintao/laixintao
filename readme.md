@@ -1,4 +1,4 @@
 
-![English Gothic architecture](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/The_Cloisters_at_Gloucester_Cathedral.jpg/750px-The_Cloisters_at_Gloucester_Cathedral.jpg)
+![NGC 6357](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Cosmic_%E2%80%98Winter%E2%80%99_Wonderland.jpg/600px-Cosmic_%E2%80%98Winter%E2%80%99_Wonderland.jpg)
 
-*[English Gothic architecture](https://wikipedia.org/wiki/File:The_Cloisters_at_Gloucester_Cathedral.jpg)*
+*[NGC 6357](https://wikipedia.org/wiki/File:Cosmic_%E2%80%98Winter%E2%80%99_Wonderland.jpg)*
