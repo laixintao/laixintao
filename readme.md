@@ -1,4 +1,4 @@
 
-![NGC 6357](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Cosmic_%E2%80%98Winter%E2%80%99_Wonderland.jpg/600px-Cosmic_%E2%80%98Winter%E2%80%99_Wonderland.jpg)
+![Violet-backed starling](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Violet-backed_starling_%28Cinnyricinclus_leucogaster_verreauxi%29_male.jpg/600px-Violet-backed_starling_%28Cinnyricinclus_leucogaster_verreauxi%29_male.jpg)
 
-*[NGC 6357](https://wikipedia.org/wiki/File:Cosmic_%E2%80%98Winter%E2%80%99_Wonderland.jpg)*
+*[Violet-backed starling](https://wikipedia.org/wiki/File:Violet-backed_starling_(Cinnyricinclus_leucogaster_verreauxi)_male.jpg)*
