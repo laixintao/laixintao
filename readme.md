@@ -1,4 +1,4 @@
 
-![Ambrosius Bosschaert](https://upload.wikimedia.org/wikipedia/commons/thumb/9/96/Ambrosius_Bosschaert_the_Elder_%28Dutch_-_Flower_Still_Life_-_Google_Art_Project.jpg/525px-Ambrosius_Bosschaert_the_Elder_%28Dutch_-_Flower_Still_Life_-_Google_Art_Project.jpg)
+![Pope Pius VI](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Pompeo_Batoni_-_Ritratto_di_Papa_Pio_VI_%28National_Gallery_of_Ireland%29.jpg/450px-Pompeo_Batoni_-_Ritratto_di_Papa_Pio_VI_%28National_Gallery_of_Ireland%29.jpg)
 
-*[Ambrosius Bosschaert](https://wikipedia.org/wiki/File:Ambrosius_Bosschaert_the_Elder_(Dutch_-_Flower_Still_Life_-_Google_Art_Project.jpg)*
+*[Pope Pius VI](https://wikipedia.org/wiki/File:Pompeo_Batoni_-_Ritratto_di_Papa_Pio_VI_(National_Gallery_of_Ireland).jpg)*
