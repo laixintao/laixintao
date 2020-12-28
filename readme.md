@@ -1,4 +1,4 @@
 
-![Pope Pius VI](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Pompeo_Batoni_-_Ritratto_di_Papa_Pio_VI_%28National_Gallery_of_Ireland%29.jpg/450px-Pompeo_Batoni_-_Ritratto_di_Papa_Pio_VI_%28National_Gallery_of_Ireland%29.jpg)
+![Adoration of the Shepherds](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Gerard_van_Honthorst_-_Adoration_of_the_Shepherds_%281622%29.jpg/600px-Gerard_van_Honthorst_-_Adoration_of_the_Shepherds_%281622%29.jpg)
 
-*[Pope Pius VI](https://wikipedia.org/wiki/File:Pompeo_Batoni_-_Ritratto_di_Papa_Pio_VI_(National_Gallery_of_Ireland).jpg)*
+*[Adoration of the Shepherds](https://wikipedia.org/wiki/File:Gerard_van_Honthorst_-_Adoration_of_the_Shepherds_(1622).jpg)*
