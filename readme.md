@@ -1,4 +1,4 @@
 
-![Adoration of the Shepherds](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Gerard_van_Honthorst_-_Adoration_of_the_Shepherds_%281622%29.jpg/600px-Gerard_van_Honthorst_-_Adoration_of_the_Shepherds_%281622%29.jpg)
+![Thomas Ewing](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e4/EWING%2C_Thomas-Treasury_%28BEP_engraved_portrait%29.jpg/450px-EWING%2C_Thomas-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Adoration of the Shepherds](https://wikipedia.org/wiki/File:Gerard_van_Honthorst_-_Adoration_of_the_Shepherds_(1622).jpg)*
+*[Thomas Ewing](https://wikipedia.org/wiki/File:EWING,_Thomas-Treasury_(BEP_engraved_portrait).jpg)*
