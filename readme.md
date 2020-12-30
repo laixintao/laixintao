@@ -1,4 +1,4 @@
 
-![Thomas Ewing](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e4/EWING%2C_Thomas-Treasury_%28BEP_engraved_portrait%29.jpg/450px-EWING%2C_Thomas-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Wounded Knee Massacre](https://upload.wikimedia.org/wikipedia/commons/thumb/3/35/Wounded_Knee_aftermath5.jpg/600px-Wounded_Knee_aftermath5.jpg)
 
-*[Thomas Ewing](https://wikipedia.org/wiki/File:EWING,_Thomas-Treasury_(BEP_engraved_portrait).jpg)*
+*[Wounded Knee Massacre](https://wikipedia.org/wiki/File:Wounded_Knee_aftermath5.jpg)*
