@@ -1,4 +1,4 @@
 
-![Wounded Knee Massacre](https://upload.wikimedia.org/wikipedia/commons/thumb/3/35/Wounded_Knee_aftermath5.jpg/600px-Wounded_Knee_aftermath5.jpg)
+![Llama](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2e/Lama_glama_Laguna_Colorada_2.jpg/750px-Lama_glama_Laguna_Colorada_2.jpg)
 
-*[Wounded Knee Massacre](https://wikipedia.org/wiki/File:Wounded_Knee_aftermath5.jpg)*
+*[Llama](https://wikipedia.org/wiki/File:Lama_glama_Laguna_Colorada_2.jpg)*
