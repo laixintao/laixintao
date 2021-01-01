@@ -1,4 +1,4 @@
 
-![Llama](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2e/Lama_glama_Laguna_Colorada_2.jpg/750px-Lama_glama_Laguna_Colorada_2.jpg)
+![Fervaal](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d0/Carloz_Schwabe_-_Vincent_d%27Indy%27s_Fervaal.jpg/525px-Carloz_Schwabe_-_Vincent_d%27Indy%27s_Fervaal.jpg)
 
-*[Llama](https://wikipedia.org/wiki/File:Lama_glama_Laguna_Colorada_2.jpg)*
+*[Fervaal](https://wikipedia.org/wiki/File:Carloz_Schwabe_-_Vincent_d%27Indy%27s_Fervaal.jpg)*
