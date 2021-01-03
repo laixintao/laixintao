@@ -1,4 +1,4 @@
 
-![Still life](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Osias_Beert_the_Elder_-_Dishes_with_Oysters%2C_Fruit%2C_and_Wine_-_Google_Art_Project.jpg/525px-Osias_Beert_the_Elder_-_Dishes_with_Oysters%2C_Fruit%2C_and_Wine_-_Google_Art_Project.jpg)
+![Priscilla Horton](https://upload.wikimedia.org/wikipedia/commons/thumb/4/44/Priscilla_Horton_%28Mrs._German_Reed%29_as_Ariel.jpg/450px-Priscilla_Horton_%28Mrs._German_Reed%29_as_Ariel.jpg)
 
-*[Still life](https://wikipedia.org/wiki/File:Osias_Beert_the_Elder_-_Dishes_with_Oysters,_Fruit,_and_Wine_-_Google_Art_Project.jpg)*
+*[Priscilla Horton](https://wikipedia.org/wiki/File:Priscilla_Horton_(Mrs._German_Reed)_as_Ariel.jpg)*
