@@ -1,4 +1,4 @@
 
-![Coat of arms of Connecticut](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Connecticut_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-Connecticut_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![The Consummation of Empire](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1a/Cole_Thomas_The_Consummation_The_Course_of_the_Empire_1836.jpg/750px-Cole_Thomas_The_Consummation_The_Course_of_the_Empire_1836.jpg)
 
-*[Coat of arms of Connecticut](https://wikipedia.org/wiki/File:Connecticut_state_coat_of_arms_(illustrated,_1876).jpg)*
+*[The Consummation of Empire](https://wikipedia.org/wiki/File:Cole_Thomas_The_Consummation_The_Course_of_the_Empire_1836.jpg)*
