@@ -1,4 +1,4 @@
 
-![The Consummation of Empire](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1a/Cole_Thomas_The_Consummation_The_Course_of_the_Empire_1836.jpg/750px-Cole_Thomas_The_Consummation_The_Course_of_the_Empire_1836.jpg)
+![Ptyas mucosa](https://upload.wikimedia.org/wikipedia/commons/thumb/1/11/Indian_Rat_Snake_%28Grey_and_Yellow%29.jpg/450px-Indian_Rat_Snake_%28Grey_and_Yellow%29.jpg)
 
-*[The Consummation of Empire](https://wikipedia.org/wiki/File:Cole_Thomas_The_Consummation_The_Course_of_the_Empire_1836.jpg)*
+*[Ptyas mucosa](https://wikipedia.org/wiki/File:Indian_Rat_Snake_(Grey_and_Yellow).jpg)*
