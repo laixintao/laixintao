@@ -1,4 +1,4 @@
 
-![Ptyas mucosa](https://upload.wikimedia.org/wikipedia/commons/thumb/1/11/Indian_Rat_Snake_%28Grey_and_Yellow%29.jpg/450px-Indian_Rat_Snake_%28Grey_and_Yellow%29.jpg)
+![Venus with a Mirror](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Titian_-_Venus_with_a_Mirror_-_Google_Art_Project.jpg/525px-Titian_-_Venus_with_a_Mirror_-_Google_Art_Project.jpg)
 
-*[Ptyas mucosa](https://wikipedia.org/wiki/File:Indian_Rat_Snake_(Grey_and_Yellow).jpg)*
+*[Venus with a Mirror](https://wikipedia.org/wiki/File:Titian_-_Venus_with_a_Mirror_-_Google_Art_Project.jpg)*
