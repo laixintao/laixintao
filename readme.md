@@ -1,4 +1,4 @@
 
-![Venus with a Mirror](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Titian_-_Venus_with_a_Mirror_-_Google_Art_Project.jpg/525px-Titian_-_Venus_with_a_Mirror_-_Google_Art_Project.jpg)
+![Salmon P. Chase](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f0/CHASE%2C_Samuel_P-Treasury_%28BEP_engraved_portrait%29.jpg/525px-CHASE%2C_Samuel_P-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Venus with a Mirror](https://wikipedia.org/wiki/File:Titian_-_Venus_with_a_Mirror_-_Google_Art_Project.jpg)*
+*[Salmon P. Chase](https://wikipedia.org/wiki/File:CHASE,_Samuel_P-Treasury_(BEP_engraved_portrait).jpg)*
