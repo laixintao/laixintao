@@ -1,4 +1,4 @@
 
-![Thermoplastic-sheathed cable](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a0/Electric_guide_3%C3%972.5_mm.jpg/525px-Electric_guide_3%C3%972.5_mm.jpg)
+![Danzig gulden](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/DAN-61-Bank_von_Danzig-25_Gulden_%281931%29.jpg/525px-DAN-61-Bank_von_Danzig-25_Gulden_%281931%29.jpg)
 
-*[Thermoplastic-sheathed cable](https://wikipedia.org/wiki/File:Electric_guide_3%C3%972.5_mm.jpg)*
+*[Danzig gulden](https://wikipedia.org/wiki/File:DAN-61-Bank_von_Danzig-25_Gulden_(1931).jpg)*
