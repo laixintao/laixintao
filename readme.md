@@ -1,4 +1,4 @@
 
-![Danzig gulden](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/DAN-61-Bank_von_Danzig-25_Gulden_%281931%29.jpg/525px-DAN-61-Bank_von_Danzig-25_Gulden_%281931%29.jpg)
+![Sympetrum danae](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8d/Black_darter_%28Sympetrum_danae%29_male.jpg/525px-Black_darter_%28Sympetrum_danae%29_male.jpg)
 
-*[Danzig gulden](https://wikipedia.org/wiki/File:DAN-61-Bank_von_Danzig-25_Gulden_(1931).jpg)*
+*[Sympetrum danae](https://wikipedia.org/wiki/File:Black_darter_(Sympetrum_danae)_male.jpg)*
