@@ -1,4 +1,4 @@
 
-![William de Leftwich Dodge](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c1/Ceiling_mosaic_in_the_Surrogate%27s_Courthouse_%2832325%29a.jpg/600px-Ceiling_mosaic_in_the_Surrogate%27s_Courthouse_%2832325%29a.jpg)
+![Christchurch Art Gallery](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b8/Christchurch_Art_Gallery%2C_Christchurch%2C_New_Zealand.jpg/750px-Christchurch_Art_Gallery%2C_Christchurch%2C_New_Zealand.jpg)
 
-*[William de Leftwich Dodge](https://wikipedia.org/wiki/File:Ceiling_mosaic_in_the_Surrogate%27s_Courthouse_(32325)a.jpg)*
+*[Christchurch Art Gallery](https://wikipedia.org/wiki/File:Christchurch_Art_Gallery,_Christchurch,_New_Zealand.jpg)*
