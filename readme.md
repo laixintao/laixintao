@@ -1,4 +1,4 @@
 
-![Christchurch Art Gallery](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b8/Christchurch_Art_Gallery%2C_Christchurch%2C_New_Zealand.jpg/750px-Christchurch_Art_Gallery%2C_Christchurch%2C_New_Zealand.jpg)
+![Daniel McCallum](https://upload.wikimedia.org/wikipedia/commons/thumb/7/78/Daniel_Craig_McCallum_by_The_Brady_National_Photographic_Art_Gallery.jpg/450px-Daniel_Craig_McCallum_by_The_Brady_National_Photographic_Art_Gallery.jpg)
 
-*[Christchurch Art Gallery](https://wikipedia.org/wiki/File:Christchurch_Art_Gallery,_Christchurch,_New_Zealand.jpg)*
+*[Daniel McCallum](https://wikipedia.org/wiki/File:Daniel_Craig_McCallum_by_The_Brady_National_Photographic_Art_Gallery.jpg)*
