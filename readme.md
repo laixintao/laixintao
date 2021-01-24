@@ -1,4 +1,4 @@
 
-![Sooty oystercatcher](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e8/Haematopus_fuliginosus_-_Doughboy_Head.jpg/525px-Haematopus_fuliginosus_-_Doughboy_Head.jpg)
+![The Vision of the Blessed Hermann Joseph](https://upload.wikimedia.org/wikipedia/commons/thumb/5/57/Anton_van_Dyck_-_The_Vision_of_the_Blessed_Hermann_Joseph_-_Google_Art_Project.jpg/525px-Anton_van_Dyck_-_The_Vision_of_the_Blessed_Hermann_Joseph_-_Google_Art_Project.jpg)
 
-*[Sooty oystercatcher](https://wikipedia.org/wiki/File:Haematopus_fuliginosus_-_Doughboy_Head.jpg)*
+*[The Vision of the Blessed Hermann Joseph](https://wikipedia.org/wiki/File:Anton_van_Dyck_-_The_Vision_of_the_Blessed_Hermann_Joseph_-_Google_Art_Project.jpg)*
