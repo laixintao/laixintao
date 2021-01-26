@@ -1,4 +1,4 @@
 
-![Walter Forward](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/FORWARD%2C_Walter-Treasury_%28BEP_engraved_portrait%29.jpg/525px-FORWARD%2C_Walter-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Peter Tatchell](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dc/Peter_Tatchell_-_Red_Wall_-_8by10_-_2016-10-15.jpg/450px-Peter_Tatchell_-_Red_Wall_-_8by10_-_2016-10-15.jpg)
 
-*[Walter Forward](https://wikipedia.org/wiki/File:FORWARD,_Walter-Treasury_(BEP_engraved_portrait).jpg)*
+*[Peter Tatchell](https://wikipedia.org/wiki/File:Peter_Tatchell_-_Red_Wall_-_8by10_-_2016-10-15.jpg)*
