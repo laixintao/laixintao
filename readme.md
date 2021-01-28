@@ -1,4 +1,4 @@
 
-![Peter Tatchell](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dc/Peter_Tatchell_-_Red_Wall_-_8by10_-_2016-10-15.jpg/450px-Peter_Tatchell_-_Red_Wall_-_8by10_-_2016-10-15.jpg)
+![Front view of a British Army soldier in full combat dress](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/British_Army_Soldier_in_Full_Kit_in_Afghanistan_MOD_45152579.jpg/300px-British_Army_Soldier_in_Full_Kit_in_Afghanistan_MOD_45152579.jpg)
 
-*[Peter Tatchell](https://wikipedia.org/wiki/File:Peter_Tatchell_-_Red_Wall_-_8by10_-_2016-10-15.jpg)*
+*[Front view of a British Army soldier in full combat dress](https://wikipedia.org/wiki/File:British_Army_Soldier_in_Full_Kit_in_Afghanistan_MOD_45152579.jpg)*
