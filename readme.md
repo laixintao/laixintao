@@ -1,4 +1,4 @@
 
-![Rear view of a British Army soldier in full combat dress](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ec/British_Army_Soldier_in_Full_Kit_in_Afghanistan_MOD_45152581.jpg/300px-British_Army_Soldier_in_Full_Kit_in_Afghanistan_MOD_45152581.jpg)
+![Aminah Cendrakasih](https://upload.wikimedia.org/wikipedia/commons/thumb/f/ff/Aminah_Cendrakasih%2C_c._1959%2C_by_Tati_Photo_Studio.jpg/450px-Aminah_Cendrakasih%2C_c._1959%2C_by_Tati_Photo_Studio.jpg)
 
-*[Rear view of a British Army soldier in full combat dress](https://wikipedia.org/wiki/File:British_Army_Soldier_in_Full_Kit_in_Afghanistan_MOD_45152581.jpg)*
+*[Aminah Cendrakasih](https://wikipedia.org/wiki/File:Aminah_Cendrakasih,_c._1959,_by_Tati_Photo_Studio.jpg)*
