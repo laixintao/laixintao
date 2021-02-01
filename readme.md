@@ -1,4 +1,4 @@
 
-![Mycena epipterygia](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Dehnbare_Helmling_Mycena_epipterygia.jpg/525px-Dehnbare_Helmling_Mycena_epipterygia.jpg)
+![Robinson projection](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7c/Map_of_the_world_by_the_US_Gov_as_of_2016_no_legend.svg/900px-Map_of_the_world_by_the_US_Gov_as_of_2016_no_legend.svg.png)
 
-*[Mycena epipterygia](https://wikipedia.org/wiki/File:Dehnbare_Helmling_Mycena_epipterygia.jpg)*
+*[Robinson projection](https://wikipedia.org/wiki/File:Map_of_the_world_by_the_US_Gov_as_of_2016_no_legend.svg)*
