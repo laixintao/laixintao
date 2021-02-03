@@ -1,4 +1,4 @@
 
-![Robinson projection](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7c/Map_of_the_world_by_the_US_Gov_as_of_2016_no_legend.svg/900px-Map_of_the_world_by_the_US_Gov_as_of_2016_no_legend.svg.png)
+![Robert Earl Jones](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2e/Robert_Earl_Jones_in_Langston_Hughes%27_Don%27t_You_Want_to_be_Free%3F_%2823_June_1938%3B_photograph_by_Carl_Van_Vechten%29.jpg/450px-Robert_Earl_Jones_in_Langston_Hughes%27_Don%27t_You_Want_to_be_Free%3F_%2823_June_1938%3B_photograph_by_Carl_Van_Vechten%29.jpg)
 
-*[Robinson projection](https://wikipedia.org/wiki/File:Map_of_the_world_by_the_US_Gov_as_of_2016_no_legend.svg)*
+*[Robert Earl Jones](https://wikipedia.org/wiki/File:Robert_Earl_Jones_in_Langston_Hughes%27_Don%27t_You_Want_to_be_Free%3F_(23_June_1938;_photograph_by_Carl_Van_Vechten).jpg)*
