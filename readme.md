@@ -1,4 +1,4 @@
 
-![William Henry Harrison](https://upload.wikimedia.org/wikipedia/commons/thumb/6/67/HARRISON%2C_William_H-President_%28BEP_engraved_portrait%29.jpg/525px-HARRISON%2C_William_H-President_%28BEP_engraved_portrait%29.jpg)
+![Cross-sectional diagram of a chicken egg](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Chicken_egg_diagram.svg/525px-Chicken_egg_diagram.svg.png)
 
-*[William Henry Harrison](https://wikipedia.org/wiki/File:HARRISON,_William_H-President_(BEP_engraved_portrait).jpg)*
+*[Cross-sectional diagram of a chicken egg](https://wikipedia.org/wiki/File:Chicken_egg_diagram.svg)*
