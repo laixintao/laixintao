@@ -1,4 +1,4 @@
 
-![Cross-sectional diagram of a chicken egg](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Chicken_egg_diagram.svg/525px-Chicken_egg_diagram.svg.png)
+![Obverse and reverse of a 1626 Duchy of Parma two-doppie gold coin](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c2/Italian_States-Piacenza_1626_2_Doppie.jpg/750px-Italian_States-Piacenza_1626_2_Doppie.jpg)
 
-*[Cross-sectional diagram of a chicken egg](https://wikipedia.org/wiki/File:Chicken_egg_diagram.svg)*
+*[Obverse and reverse of a 1626 Duchy of Parma two-doppie gold coin](https://wikipedia.org/wiki/File:Italian_States-Piacenza_1626_2_Doppie.jpg)*
