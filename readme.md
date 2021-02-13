@@ -1,4 +1,4 @@
 
-![Obverse and reverse of a 1626 Duchy of Parma two-doppie gold coin](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c2/Italian_States-Piacenza_1626_2_Doppie.jpg/750px-Italian_States-Piacenza_1626_2_Doppie.jpg)
+![Alice Roosevelt Longworth](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/Alice_Roosevelt_by_Frances_Benjamin_Johnston.jpg/375px-Alice_Roosevelt_by_Frances_Benjamin_Johnston.jpg)
 
-*[Obverse and reverse of a 1626 Duchy of Parma two-doppie gold coin](https://wikipedia.org/wiki/File:Italian_States-Piacenza_1626_2_Doppie.jpg)*
+*[Alice Roosevelt Longworth](https://wikipedia.org/wiki/File:Alice_Roosevelt_by_Frances_Benjamin_Johnston.jpg)*
