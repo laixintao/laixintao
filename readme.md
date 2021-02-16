@@ -1,4 +1,4 @@
 
-![Jupiter and Io](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Antonio_Allegri%2C_called_Correggio_-_Jupiter_and_Io_-_Google_Art_Project.jpg/375px-Antonio_Allegri%2C_called_Correggio_-_Jupiter_and_Io_-_Google_Art_Project.jpg)
+![Wat Xieng Thong](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/Temple_Wat_Xieng_Thong_-_Luang_Prabang_-_Laos.jpg/600px-Temple_Wat_Xieng_Thong_-_Luang_Prabang_-_Laos.jpg)
 
-*[Jupiter and Io](https://wikipedia.org/wiki/File:Antonio_Allegri,_called_Correggio_-_Jupiter_and_Io_-_Google_Art_Project.jpg)*
+*[Wat Xieng Thong](https://wikipedia.org/wiki/File:Temple_Wat_Xieng_Thong_-_Luang_Prabang_-_Laos.jpg)*
