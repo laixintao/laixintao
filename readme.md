@@ -1,4 +1,4 @@
 
-![Rosalind Pitt-Rivers](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Rosalind_Venetia_Pitt-Rivers_%281907-1990%29_-_Restoration.jpg/450px-Rosalind_Venetia_Pitt-Rivers_%281907-1990%29_-_Restoration.jpg)
+![Helleborus orientalis](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/Helleborus_orientalis._Lenteroos_04.JPG/525px-Helleborus_orientalis._Lenteroos_04.JPG)
 
-*[Rosalind Pitt-Rivers](https://wikipedia.org/wiki/File:Rosalind_Venetia_Pitt-Rivers_(1907-1990)_-_Restoration.jpg)*
+*[Helleborus orientalis](https://wikipedia.org/wiki/File:Helleborus_orientalis._Lenteroos_04.JPG)*
