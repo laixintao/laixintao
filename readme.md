@@ -1,4 +1,4 @@
 
-![Planthopper](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ef/Flatid_leaf_bugs_and_nymphs_%28Phromnia_rosea%29.jpg/525px-Flatid_leaf_bugs_and_nymphs_%28Phromnia_rosea%29.jpg)
+![Ansel Adams](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Ansel_Adams_and_camera.jpg/450px-Ansel_Adams_and_camera.jpg)
 
-*[Planthopper](https://wikipedia.org/wiki/File:Flatid_leaf_bugs_and_nymphs_(Phromnia_rosea).jpg)*
+*[Ansel Adams](https://wikipedia.org/wiki/File:Ansel_Adams_and_camera.jpg)*
