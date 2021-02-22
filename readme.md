@@ -1,4 +1,4 @@
 
-![Ansel Adams](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Ansel_Adams_and_camera.jpg/450px-Ansel_Adams_and_camera.jpg)
+![Tule elk](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Cervus_canadensis_nannodes_at_Tomales_Point.jpg/525px-Cervus_canadensis_nannodes_at_Tomales_Point.jpg)
 
-*[Ansel Adams](https://wikipedia.org/wiki/File:Ansel_Adams_and_camera.jpg)*
+*[Tule elk](https://wikipedia.org/wiki/File:Cervus_canadensis_nannodes_at_Tomales_Point.jpg)*
