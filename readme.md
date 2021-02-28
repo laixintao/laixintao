@@ -1,4 +1,4 @@
 
-![Malagasy giant chameleon](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Oustalet%27s_chameleon_%28Furcifer_oustaleti%29_juvenile_Montagne_d%E2%80%99Ambre.jpg/525px-Oustalet%27s_chameleon_%28Furcifer_oustaleti%29_juvenile_Montagne_d%E2%80%99Ambre.jpg)
+![A Negress](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Anna_Bili%C5%84ska-Bohdanowiczowa_-_Black_girl_-_MP_5531_-_National_Museum_in_Warsaw.jpg/450px-Anna_Bili%C5%84ska-Bohdanowiczowa_-_Black_girl_-_MP_5531_-_National_Museum_in_Warsaw.jpg)
 
-*[Malagasy giant chameleon](https://wikipedia.org/wiki/File:Oustalet%27s_chameleon_(Furcifer_oustaleti)_juvenile_Montagne_d%E2%80%99Ambre.jpg)*
+*[A Negress](https://wikipedia.org/wiki/File:Anna_Bili%C5%84ska-Bohdanowiczowa_-_Black_girl_-_MP_5531_-_National_Museum_in_Warsaw.jpg)*
