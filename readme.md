@@ -1,4 +1,4 @@
 
-![Les Troyens](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Hector_Berlioz%2C_La_Prise_de_Troie_score_cover_-_Restoration.jpg/450px-Hector_Berlioz%2C_La_Prise_de_Troie_score_cover_-_Restoration.jpg)
+![Female hardhead](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Aythya_australis_female_-_Hurstville_Golf_Course.jpg/450px-Aythya_australis_female_-_Hurstville_Golf_Course.jpg)
 
-*[Les Troyens](https://wikipedia.org/wiki/File:Hector_Berlioz,_La_Prise_de_Troie_score_cover_-_Restoration.jpg)*
+*[Female hardhead](https://wikipedia.org/wiki/File:Aythya_australis_female_-_Hurstville_Golf_Course.jpg)*
