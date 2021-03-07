@@ -1,4 +1,4 @@
 
-![Lansdowne Heracles](https://upload.wikimedia.org/wikipedia/commons/thumb/f/ff/Lansdowne_Herakles_Getty_Museum.jpg/450px-Lansdowne_Herakles_Getty_Museum.jpg)
+![Palais Galliera](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Mus%C3%A9e_Galliera%2C_Paris_21_July_2017.jpg/750px-Mus%C3%A9e_Galliera%2C_Paris_21_July_2017.jpg)
 
-*[Lansdowne Heracles](https://wikipedia.org/wiki/File:Lansdowne_Herakles_Getty_Museum.jpg)*
+*[Palais Galliera](https://wikipedia.org/wiki/File:Mus%C3%A9e_Galliera,_Paris_21_July_2017.jpg)*
