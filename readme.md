@@ -1,4 +1,4 @@
 
-![Palais Galliera](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Mus%C3%A9e_Galliera%2C_Paris_21_July_2017.jpg/750px-Mus%C3%A9e_Galliera%2C_Paris_21_July_2017.jpg)
+![Mieke Wijaya](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Mieke_Wijaya%2C_c._1960%2C_from_Tati_Photo_Studio.jpg/450px-Mieke_Wijaya%2C_c._1960%2C_from_Tati_Photo_Studio.jpg)
 
-*[Palais Galliera](https://wikipedia.org/wiki/File:Mus%C3%A9e_Galliera,_Paris_21_July_2017.jpg)*
+*[Mieke Wijaya](https://wikipedia.org/wiki/File:Mieke_Wijaya,_c._1960,_from_Tati_Photo_Studio.jpg)*
