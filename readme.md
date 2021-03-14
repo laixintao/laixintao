@@ -1,4 +1,4 @@
 
-![Obverse and reverse of a fifty-cent fourth-issue fractional-currency banknote](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0e/US-Fractional_%284th_Issue%29-%240.50-Fr.1379.jpg/525px-US-Fractional_%284th_Issue%29-%240.50-Fr.1379.jpg)
+![Sālote Tupou III](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Salote_Tupou_III_of_Tonga_in_1908.jpg/450px-Salote_Tupou_III_of_Tonga_in_1908.jpg)
 
-*[Obverse and reverse of a fifty-cent fourth-issue fractional-currency banknote](https://wikipedia.org/wiki/File:US-Fractional_(4th_Issue)-$0.50-Fr.1379.jpg)*
+*[Sālote Tupou III](https://wikipedia.org/wiki/File:Salote_Tupou_III_of_Tonga_in_1908.jpg)*
