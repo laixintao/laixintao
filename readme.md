@@ -1,4 +1,4 @@
 
-![Eutropis macularia](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cb/Eutropis_macularia_%28bronze_grass_skink%29_on_a_tree_trunk.jpg/600px-Eutropis_macularia_%28bronze_grass_skink%29_on_a_tree_trunk.jpg)
+![Francis B. Spinola](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/SPINOLA%2C_Francis_B_%28BEP_engraved_portrait%29.jpg/450px-SPINOLA%2C_Francis_B_%28BEP_engraved_portrait%29.jpg)
 
-*[Eutropis macularia](https://wikipedia.org/wiki/File:Eutropis_macularia_(bronze_grass_skink)_on_a_tree_trunk.jpg)*
+*[Francis B. Spinola](https://wikipedia.org/wiki/File:SPINOLA,_Francis_B_(BEP_engraved_portrait).jpg)*
