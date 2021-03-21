@@ -1,4 +1,4 @@
 
-![Francis B. Spinola](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/SPINOLA%2C_Francis_B_%28BEP_engraved_portrait%29.jpg/450px-SPINOLA%2C_Francis_B_%28BEP_engraved_portrait%29.jpg)
+![Emily Carr](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/Emily_Carr_%281939%29_Odds_and_Ends.jpg/600px-Emily_Carr_%281939%29_Odds_and_Ends.jpg)
 
-*[Francis B. Spinola](https://wikipedia.org/wiki/File:SPINOLA,_Francis_B_(BEP_engraved_portrait).jpg)*
+*[Emily Carr](https://wikipedia.org/wiki/File:Emily_Carr_(1939)_Odds_and_Ends.jpg)*
