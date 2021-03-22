@@ -1,4 +1,4 @@
 
-![Emily Carr](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/Emily_Carr_%281939%29_Odds_and_Ends.jpg/600px-Emily_Carr_%281939%29_Odds_and_Ends.jpg)
+![Vision of St. John on Patmos](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/San_Giovanni_Evangelista_%28Parma%29_-_Dome.jpg/600px-San_Giovanni_Evangelista_%28Parma%29_-_Dome.jpg)
 
-*[Emily Carr](https://wikipedia.org/wiki/File:Emily_Carr_(1939)_Odds_and_Ends.jpg)*
+*[Vision of St. John on Patmos](https://wikipedia.org/wiki/File:San_Giovanni_Evangelista_(Parma)_-_Dome.jpg)*
