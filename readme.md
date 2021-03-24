@@ -1,4 +1,4 @@
 
-![Abolhassan Banisadr](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f2/Ab%C5%AB_l-Hasan_Ban%C4%ABsadr_IMG_2044_edit.jpg/420px-Ab%C5%AB_l-Hasan_Ban%C4%ABsadr_IMG_2044_edit.jpg)
+![Roger B. Chaffee](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/Roger_B._Chaffee_at_a_console_in_the_Mission_Control_Center%2C_Houston%2C_during_the_Gemini-Titan_3_flight.jpg/525px-Roger_B._Chaffee_at_a_console_in_the_Mission_Control_Center%2C_Houston%2C_during_the_Gemini-Titan_3_flight.jpg)
 
-*[Abolhassan Banisadr](https://wikipedia.org/wiki/File:Ab%C5%AB_l-Hasan_Ban%C4%ABsadr_IMG_2044_edit.jpg)*
+*[Roger B. Chaffee](https://wikipedia.org/wiki/File:Roger_B._Chaffee_at_a_console_in_the_Mission_Control_Center,_Houston,_during_the_Gemini-Titan_3_flight.jpg)*
