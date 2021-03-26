@@ -1,4 +1,4 @@
 
-![Noisy pitta](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9f/Pitta_versicolor_-_Kembla_Heights.jpg/525px-Pitta_versicolor_-_Kembla_Heights.jpg)
+![Le mage](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Alfredo_Edel_-_Jules_Massenet_-_Le_mage.jpg/450px-Alfredo_Edel_-_Jules_Massenet_-_Le_mage.jpg)
 
-*[Noisy pitta](https://wikipedia.org/wiki/File:Pitta_versicolor_-_Kembla_Heights.jpg)*
+*[Le mage](https://wikipedia.org/wiki/File:Alfredo_Edel_-_Jules_Massenet_-_Le_mage.jpg)*
