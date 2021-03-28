@@ -1,4 +1,4 @@
 
-![Dvenadsat Apostolov](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e4/Russian_Fleet_%281892%29_il._12_Dvenadsat_Apostolov_-_Restoration%2C_cropped.jpg/600px-Russian_Fleet_%281892%29_il._12_Dvenadsat_Apostolov_-_Restoration%2C_cropped.jpg)
+![Chromostereopsis](https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Muzeum_Su%C5%82kowskich_-_Zabytkowy_Witra%C5%BC.jpg/450px-Muzeum_Su%C5%82kowskich_-_Zabytkowy_Witra%C5%BC.jpg)
 
-*[Dvenadsat Apostolov](https://wikipedia.org/wiki/File:Russian_Fleet_(1892)_il._12_Dvenadsat_Apostolov_-_Restoration,_cropped.jpg)*
+*[Chromostereopsis](https://wikipedia.org/wiki/File:Muzeum_Su%C5%82kowskich_-_Zabytkowy_Witra%C5%BC.jpg)*
