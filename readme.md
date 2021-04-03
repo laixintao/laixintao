@@ -1,4 +1,4 @@
 
-![My Wife's Lovers](https://upload.wikimedia.org/wikipedia/commons/thumb/3/31/Carl_Kahler_-_My_Wife%27s_Lovers.jpg/600px-Carl_Kahler_-_My_Wife%27s_Lovers.jpg)
+![The Entombment](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Entombment_Michelangelo.jpg/525px-Entombment_Michelangelo.jpg)
 
-*[My Wife's Lovers](https://wikipedia.org/wiki/File:Carl_Kahler_-_My_Wife%27s_Lovers.jpg)*
+*[The Entombment](https://wikipedia.org/wiki/File:Entombment_Michelangelo.jpg)*
