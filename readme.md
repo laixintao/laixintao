@@ -1,4 +1,4 @@
 
-![Étienne Maurice Gérard](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/David_Etienne_Maurice_Gerard.jpg/450px-David_Etienne_Maurice_Gerard.jpg)
+![Eunice Pinney](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Lolotte_and_Werther_by_Eunice_Pinney.jpg/450px-Lolotte_and_Werther_by_Eunice_Pinney.jpg)
 
-*[Étienne Maurice Gérard](https://wikipedia.org/wiki/File:David_Etienne_Maurice_Gerard.jpg)*
+*[Eunice Pinney](https://wikipedia.org/wiki/File:Lolotte_and_Werther_by_Eunice_Pinney.jpg)*
