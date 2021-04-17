@@ -1,4 +1,4 @@
 
-![Carol W. Greider](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/GREIDER_Carol_2014_-_Less_vignetting.jpg/375px-GREIDER_Carol_2014_-_Less_vignetting.jpg)
+![Charles J. Folger](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/FOLGER%2C_Charles_J-Treasury_%28BEP_engraved_portrait%29.jpg/450px-FOLGER%2C_Charles_J-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Carol W. Greider](https://wikipedia.org/wiki/File:GREIDER_Carol_2014_-_Less_vignetting.jpg)*
+*[Charles J. Folger](https://wikipedia.org/wiki/File:FOLGER,_Charles_J-Treasury_(BEP_engraved_portrait).jpg)*
