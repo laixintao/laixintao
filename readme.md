@@ -1,4 +1,4 @@
 
-![Charles J. Folger](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/FOLGER%2C_Charles_J-Treasury_%28BEP_engraved_portrait%29.jpg/450px-FOLGER%2C_Charles_J-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Clavulinopsis sulcata](https://upload.wikimedia.org/wikipedia/commons/thumb/8/87/Clavulinopsis_sulcata_-_Lane_Cove_River.jpg/525px-Clavulinopsis_sulcata_-_Lane_Cove_River.jpg)
 
-*[Charles J. Folger](https://wikipedia.org/wiki/File:FOLGER,_Charles_J-Treasury_(BEP_engraved_portrait).jpg)*
+*[Clavulinopsis sulcata](https://wikipedia.org/wiki/File:Clavulinopsis_sulcata_-_Lane_Cove_River.jpg)*
