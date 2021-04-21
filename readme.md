@@ -1,4 +1,4 @@
 
-![Jawi alphabet](https://upload.wikimedia.org/wikipedia/commons/thumb/5/54/Netherlands_East_Indies_Java_Rupee_1803-Z.jpg/525px-Netherlands_East_Indies_Java_Rupee_1803-Z.jpg)
+![Ignace-Gaston Pardies](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Ignace_Gaston_Pardies-Plate_1.jpg/750px-Ignace_Gaston_Pardies-Plate_1.jpg)
 
-*[Jawi alphabet](https://wikipedia.org/wiki/File:Netherlands_East_Indies_Java_Rupee_1803-Z.jpg)*
+*[Ignace-Gaston Pardies](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_1.jpg)*
