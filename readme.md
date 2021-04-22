@@ -1,4 +1,4 @@
 
-![Ignace-Gaston Pardies](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Ignace_Gaston_Pardies-Plate_1.jpg/750px-Ignace_Gaston_Pardies-Plate_1.jpg)
+![Cirsium eriophorum](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a6/Cirsium_eriophorum_%28Kozara_National_Park%2C_Republika_Srpska%29.jpg/525px-Cirsium_eriophorum_%28Kozara_National_Park%2C_Republika_Srpska%29.jpg)
 
-*[Ignace-Gaston Pardies](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_1.jpg)*
+*[Cirsium eriophorum](https://wikipedia.org/wiki/File:Cirsium_eriophorum_(Kozara_National_Park,_Republika_Srpska).jpg)*
