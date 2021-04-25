@@ -1,4 +1,4 @@
 
-![Presidency of James Buchanan](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/BUCHANAN%2C_James-President_%28BEP_engraved_portrait%29.jpg/450px-BUCHANAN%2C_James-President_%28BEP_engraved_portrait%29.jpg)
+![Tomb of Nebamun](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Le_Jardin_de_N%C3%A9bamoun.jpg/525px-Le_Jardin_de_N%C3%A9bamoun.jpg)
 
-*[Presidency of James Buchanan](https://wikipedia.org/wiki/File:BUCHANAN,_James-President_(BEP_engraved_portrait).jpg)*
+*[Tomb of Nebamun](https://wikipedia.org/wiki/File:Le_Jardin_de_N%C3%A9bamoun.jpg)*
