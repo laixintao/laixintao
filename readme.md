@@ -1,4 +1,4 @@
 
-![Smolny Institute](https://upload.wikimedia.org/wikipedia/commons/thumb/b/ba/RUS-2016-SPB-Smolny_Institute_02.jpg/450px-RUS-2016-SPB-Smolny_Institute_02.jpg)
+![Sun](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d4/Sun_poster.svg/750px-Sun_poster.svg.png)
 
-*[Smolny Institute](https://wikipedia.org/wiki/File:RUS-2016-SPB-Smolny_Institute_02.jpg)*
+*[Sun](https://wikipedia.org/wiki/File:Sun_poster.svg)*
