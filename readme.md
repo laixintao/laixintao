@@ -1,4 +1,4 @@
 
-![Mary Lou Williams](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Mary_Lou_Williams_%28Gottlieb_09231%29_-_Crop.jpg/450px-Mary_Lou_Williams_%28Gottlieb_09231%29_-_Crop.jpg)
+![Proboscis monkey](https://upload.wikimedia.org/wikipedia/commons/thumb/7/78/Proboscis_monkey_%28Nasalis_larvatus%29_composite.jpg/525px-Proboscis_monkey_%28Nasalis_larvatus%29_composite.jpg)
 
-*[Mary Lou Williams](https://wikipedia.org/wiki/File:Mary_Lou_Williams_(Gottlieb_09231)_-_Crop.jpg)*
+*[Proboscis monkey](https://wikipedia.org/wiki/File:Proboscis_monkey_(Nasalis_larvatus)_composite.jpg)*
