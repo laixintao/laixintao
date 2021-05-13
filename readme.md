@@ -1,4 +1,4 @@
 
-![Boy Bitten by a Lizard](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Caravaggio_-_Boy_Bitten_by_a_Lizard.jpg/450px-Caravaggio_-_Boy_Bitten_by_a_Lizard.jpg)
+![Spotted wood owl](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Strix_seloputo_-_Pasir_Ris.jpg/450px-Strix_seloputo_-_Pasir_Ris.jpg)
 
-*[Boy Bitten by a Lizard](https://wikipedia.org/wiki/File:Caravaggio_-_Boy_Bitten_by_a_Lizard.jpg)*
+*[Spotted wood owl](https://wikipedia.org/wiki/File:Strix_seloputo_-_Pasir_Ris.jpg)*
