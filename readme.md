@@ -1,4 +1,4 @@
 
-![Helsinki Cathedral](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Helsinki_July_2013-27a.jpg/525px-Helsinki_July_2013-27a.jpg)
+![Adonis blue](https://upload.wikimedia.org/wikipedia/commons/thumb/8/89/Adonis_blue_%28Polyommatus_bellargus%29_male_underside_2.jpg/450px-Adonis_blue_%28Polyommatus_bellargus%29_male_underside_2.jpg)
 
-*[Helsinki Cathedral](https://wikipedia.org/wiki/File:Helsinki_July_2013-27a.jpg)*
+*[Adonis blue](https://wikipedia.org/wiki/File:Adonis_blue_(Polyommatus_bellargus)_male_underside_2.jpg)*
