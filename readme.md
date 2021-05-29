@@ -1,4 +1,4 @@
 
-![Centennial Hall](https://upload.wikimedia.org/wikipedia/commons/thumb/3/38/Wroclaw_-_Hala_Stulecia_03.jpg/600px-Wroclaw_-_Hala_Stulecia_03.jpg)
+![William Birney](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/William_Birney.jpg/450px-William_Birney.jpg)
 
-*[Centennial Hall](https://wikipedia.org/wiki/File:Wroclaw_-_Hala_Stulecia_03.jpg)*
+*[William Birney](https://wikipedia.org/wiki/File:William_Birney.jpg)*
