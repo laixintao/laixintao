@@ -1,4 +1,4 @@
 
-![Coat of arms of Wisconsin](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/Wisconsin_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-Wisconsin_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Clitocybe nebularis](https://upload.wikimedia.org/wikipedia/commons/thumb/5/54/Nevelzwam_%28nebularis%29_tussen_afgevallen_beukenblad_%28d.j.b.%29_01.jpg/525px-Nevelzwam_%28nebularis%29_tussen_afgevallen_beukenblad_%28d.j.b.%29_01.jpg)
 
-*[Coat of arms of Wisconsin](https://wikipedia.org/wiki/File:Wisconsin_state_coat_of_arms_(illustrated,_1876).jpg)*
+*[Clitocybe nebularis](https://wikipedia.org/wiki/File:Nevelzwam_(nebularis)_tussen_afgevallen_beukenblad_(d.j.b.)_01.jpg)*
