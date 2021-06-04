@@ -1,4 +1,4 @@
 
-![Célestine Galli-Marié](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/Atelier_Nadar_-_Galli-Mari%C3%A9_in_Bizet%27s_Carmen.jpg/450px-Atelier_Nadar_-_Galli-Mari%C3%A9_in_Bizet%27s_Carmen.jpg)
+![Double-banded plover](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/Charadrius_bicinctus_2_-_Boat_Harbour.jpg/525px-Charadrius_bicinctus_2_-_Boat_Harbour.jpg)
 
-*[Célestine Galli-Marié](https://wikipedia.org/wiki/File:Atelier_Nadar_-_Galli-Mari%C3%A9_in_Bizet%27s_Carmen.jpg)*
+*[Double-banded plover](https://wikipedia.org/wiki/File:Charadrius_bicinctus_2_-_Boat_Harbour.jpg)*
