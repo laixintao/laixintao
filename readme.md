@@ -1,4 +1,4 @@
 
-![Double-banded plover](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/Charadrius_bicinctus_2_-_Boat_Harbour.jpg/525px-Charadrius_bicinctus_2_-_Boat_Harbour.jpg)
+![Book of Tobit](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Tobias_and_the_Angel_-_Filippino_Lippi.jpg/450px-Tobias_and_the_Angel_-_Filippino_Lippi.jpg)
 
-*[Double-banded plover](https://wikipedia.org/wiki/File:Charadrius_bicinctus_2_-_Boat_Harbour.jpg)*
+*[Book of Tobit](https://wikipedia.org/wiki/File:Tobias_and_the_Angel_-_Filippino_Lippi.jpg)*
