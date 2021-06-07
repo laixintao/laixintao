@@ -1,4 +1,4 @@
 
-![Book of Tobit](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Tobias_and_the_Angel_-_Filippino_Lippi.jpg/450px-Tobias_and_the_Angel_-_Filippino_Lippi.jpg)
+![Al Grey](https://upload.wikimedia.org/wikipedia/commons/thumb/9/93/Al_Grey_%28Gottlieb%29.jpg/450px-Al_Grey_%28Gottlieb%29.jpg)
 
-*[Book of Tobit](https://wikipedia.org/wiki/File:Tobias_and_the_Angel_-_Filippino_Lippi.jpg)*
+*[Al Grey](https://wikipedia.org/wiki/File:Al_Grey_(Gottlieb).jpg)*
