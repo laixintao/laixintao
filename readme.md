@@ -1,4 +1,4 @@
 
-![Al Grey](https://upload.wikimedia.org/wikipedia/commons/thumb/9/93/Al_Grey_%28Gottlieb%29.jpg/450px-Al_Grey_%28Gottlieb%29.jpg)
+![Sexual dimorphism](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Colias_dimera_copulating.jpg/525px-Colias_dimera_copulating.jpg)
 
-*[Al Grey](https://wikipedia.org/wiki/File:Al_Grey_(Gottlieb).jpg)*
+*[Sexual dimorphism](https://wikipedia.org/wiki/File:Colias_dimera_copulating.jpg)*
