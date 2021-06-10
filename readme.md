@@ -1,4 +1,4 @@
 
-![Lucy Arbell](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Lucy_Arbell_photographed_by_Paul_Nadar.jpg/375px-Lucy_Arbell_photographed_by_Paul_Nadar.jpg)
+![California State Capitol](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5a/Sacramento%2C-California---State-Capitol.jpg/600px-Sacramento%2C-California---State-Capitol.jpg)
 
-*[Lucy Arbell](https://wikipedia.org/wiki/File:Lucy_Arbell_photographed_by_Paul_Nadar.jpg)*
+*[California State Capitol](https://wikipedia.org/wiki/File:Sacramento,-California---State-Capitol.jpg)*
