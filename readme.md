@@ -1,4 +1,4 @@
 
-![Art and engraving on United States banknotes](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ac/BEP-BURT-Baptism_of_Pocahontas_%28Chapman%29.jpg/750px-BEP-BURT-Baptism_of_Pocahontas_%28Chapman%29.jpg)
+![Thích Quảng Đức](https://upload.wikimedia.org/wikipedia/commons/thumb/3/38/Th%C3%ADch_Qu%E1%BA%A3ng_%C4%90%E1%BB%A9c_self-immolation.jpg/750px-Th%C3%ADch_Qu%E1%BA%A3ng_%C4%90%E1%BB%A9c_self-immolation.jpg)
 
-*[Art and engraving on United States banknotes](https://wikipedia.org/wiki/File:BEP-BURT-Baptism_of_Pocahontas_(Chapman).jpg)*
+*[Thích Quảng Đức](https://wikipedia.org/wiki/File:Th%C3%ADch_Qu%E1%BA%A3ng_%C4%90%E1%BB%A9c_self-immolation.jpg)*
