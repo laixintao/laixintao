@@ -1,4 +1,4 @@
 
-![Bessie Coleman](https://upload.wikimedia.org/wikipedia/commons/thumb/3/33/Bessie_Coleman_in_1923.jpg/450px-Bessie_Coleman_in_1923.jpg)
+![H.M.S. Pinafore](https://upload.wikimedia.org/wikipedia/en/thumb/e/e7/W._S._Gilbert_-_Alice_B._Woodward_-_The_Pinafore_Picture_Book_-_Frontispiece.jpg/450px-W._S._Gilbert_-_Alice_B._Woodward_-_The_Pinafore_Picture_Book_-_Frontispiece.jpg)
 
-*[Bessie Coleman](https://wikipedia.org/wiki/File:Bessie_Coleman_in_1923.jpg)*
+*[H.M.S. Pinafore](https://wikipedia.org/wiki/File:W._S._Gilbert_-_Alice_B._Woodward_-_The_Pinafore_Picture_Book_-_Frontispiece.jpg)*
