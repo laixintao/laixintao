@@ -1,4 +1,4 @@
 
-![Benjamin Bristow](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/BRISTOW%2C_Benjamin_H-Treasury_%28BEP_engraved_portrait%29.jpg/450px-BRISTOW%2C_Benjamin_H-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Jane Russell](https://upload.wikimedia.org/wikipedia/commons/thumb/f/ff/Jane_Russell_in_The_Outlaw.jpg/525px-Jane_Russell_in_The_Outlaw.jpg)
 
-*[Benjamin Bristow](https://wikipedia.org/wiki/File:BRISTOW,_Benjamin_H-Treasury_(BEP_engraved_portrait).jpg)*
+*[Jane Russell](https://wikipedia.org/wiki/File:Jane_Russell_in_The_Outlaw.jpg)*
