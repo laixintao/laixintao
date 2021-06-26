@@ -1,4 +1,4 @@
 
-![Manila](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Ph_map_manila.svg/525px-Ph_map_manila.svg.png)
+![Westerhout 40](https://upload.wikimedia.org/wikipedia/commons/thumb/3/31/The_Spitzer_Space_Telescope%27s_view_of_W40.jpg/750px-The_Spitzer_Space_Telescope%27s_view_of_W40.jpg)
 
-*[Manila](https://wikipedia.org/wiki/File:Ph_map_manila.svg)*
+*[Westerhout 40](https://wikipedia.org/wiki/File:The_Spitzer_Space_Telescope%27s_view_of_W40.jpg)*
