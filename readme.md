@@ -1,4 +1,4 @@
 
-![Ring-tailed lemur](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Ring-tailed_lemur_%28Lemur_catta%29.jpg/450px-Ring-tailed_lemur_%28Lemur_catta%29.jpg)
+![Helen Keller](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3e/Helen_Keller_circa_1920_-_restored.jpg/450px-Helen_Keller_circa_1920_-_restored.jpg)
 
-*[Ring-tailed lemur](https://wikipedia.org/wiki/File:Ring-tailed_lemur_(Lemur_catta).jpg)*
+*[Helen Keller](https://wikipedia.org/wiki/File:Helen_Keller_circa_1920_-_restored.jpg)*
