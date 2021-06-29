@@ -1,4 +1,4 @@
 
-![Helen Keller](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3e/Helen_Keller_circa_1920_-_restored.jpg/450px-Helen_Keller_circa_1920_-_restored.jpg)
+![Lyman J. Gage](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/GAGE%2C_Lyman_J-Treasury_%28BEP_engraved_portrait%29.jpg/450px-GAGE%2C_Lyman_J-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Helen Keller](https://wikipedia.org/wiki/File:Helen_Keller_circa_1920_-_restored.jpg)*
+*[Lyman J. Gage](https://wikipedia.org/wiki/File:GAGE,_Lyman_J-Treasury_(BEP_engraved_portrait).jpg)*
