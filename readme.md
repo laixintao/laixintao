@@ -1,4 +1,4 @@
 
-![Lyman J. Gage](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/GAGE%2C_Lyman_J-Treasury_%28BEP_engraved_portrait%29.jpg/450px-GAGE%2C_Lyman_J-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Church of St. Peter and St. Paul, Vilnius](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/St._Peter_and_St._Paul%27s_Church_2%2C_Vilnius%2C_Lithuania_-_Diliff.jpg/599px-St._Peter_and_St._Paul%27s_Church_2%2C_Vilnius%2C_Lithuania_-_Diliff.jpg)
 
-*[Lyman J. Gage](https://wikipedia.org/wiki/File:GAGE,_Lyman_J-Treasury_(BEP_engraved_portrait).jpg)*
+*[Church of St. Peter and St. Paul, Vilnius](https://wikipedia.org/wiki/File:St._Peter_and_St._Paul%27s_Church_2,_Vilnius,_Lithuania_-_Diliff.jpg)*
