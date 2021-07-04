@@ -1,4 +1,4 @@
 
-![St. Peter's Basilica](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/Basilica_di_San_Pietro_in_Vaticano_September_2015-1a.jpg/750px-Basilica_di_San_Pietro_in_Vaticano_September_2015-1a.jpg)
+![Plumed whistling duck](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Dendrocygna_eytoni_-_Macquarie_University.jpg/525px-Dendrocygna_eytoni_-_Macquarie_University.jpg)
 
-*[St. Peter's Basilica](https://wikipedia.org/wiki/File:Basilica_di_San_Pietro_in_Vaticano_September_2015-1a.jpg)*
+*[Plumed whistling duck](https://wikipedia.org/wiki/File:Dendrocygna_eytoni_-_Macquarie_University.jpg)*
