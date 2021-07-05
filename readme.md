@@ -1,4 +1,4 @@
 
-![Plumed whistling duck](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Dendrocygna_eytoni_-_Macquarie_University.jpg/525px-Dendrocygna_eytoni_-_Macquarie_University.jpg)
+![Art and engraving on United States banknotes](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a7/BEP-GIRSCH-Declaration_of_Independence_%28Trumbull%29.jpg/750px-BEP-GIRSCH-Declaration_of_Independence_%28Trumbull%29.jpg)
 
-*[Plumed whistling duck](https://wikipedia.org/wiki/File:Dendrocygna_eytoni_-_Macquarie_University.jpg)*
+*[Art and engraving on United States banknotes](https://wikipedia.org/wiki/File:BEP-GIRSCH-Declaration_of_Independence_(Trumbull).jpg)*
