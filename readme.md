@@ -1,4 +1,4 @@
 
-![Art and engraving on United States banknotes](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a7/BEP-GIRSCH-Declaration_of_Independence_%28Trumbull%29.jpg/750px-BEP-GIRSCH-Declaration_of_Independence_%28Trumbull%29.jpg)
+![Tofana di Rozes](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Tofana_di_Rozes_parete_sud_Dolomiti_Ampezzo.jpg/750px-Tofana_di_Rozes_parete_sud_Dolomiti_Ampezzo.jpg)
 
-*[Art and engraving on United States banknotes](https://wikipedia.org/wiki/File:BEP-GIRSCH-Declaration_of_Independence_(Trumbull).jpg)*
+*[Tofana di Rozes](https://wikipedia.org/wiki/File:Tofana_di_Rozes_parete_sud_Dolomiti_Ampezzo.jpg)*
