@@ -1,4 +1,4 @@
 
-![Tofana di Rozes](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Tofana_di_Rozes_parete_sud_Dolomiti_Ampezzo.jpg/750px-Tofana_di_Rozes_parete_sud_Dolomiti_Ampezzo.jpg)
+![Zonocerus variegatus](https://upload.wikimedia.org/wikipedia/commons/thumb/7/77/Variegated_grasshopper_%28Zonocerus_variegatus%29.jpg/525px-Variegated_grasshopper_%28Zonocerus_variegatus%29.jpg)
 
-*[Tofana di Rozes](https://wikipedia.org/wiki/File:Tofana_di_Rozes_parete_sud_Dolomiti_Ampezzo.jpg)*
+*[Zonocerus variegatus](https://wikipedia.org/wiki/File:Variegated_grasshopper_(Zonocerus_variegatus).jpg)*
