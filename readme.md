@@ -1,4 +1,4 @@
 
-![Soyuz MS](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Soyuz_rocket_and_spaceship_V1-1.svg/525px-Soyuz_rocket_and_spaceship_V1-1.svg.png)
+![William Windom](https://upload.wikimedia.org/wikipedia/commons/thumb/2/28/WINDOM%2C_William-Treasury_%28BEP_engraved_portrait%29.jpg/450px-WINDOM%2C_William-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Soyuz MS](https://wikipedia.org/wiki/File:Soyuz_rocket_and_spaceship_V1-1.svg)*
+*[William Windom](https://wikipedia.org/wiki/File:WINDOM,_William-Treasury_(BEP_engraved_portrait).jpg)*
