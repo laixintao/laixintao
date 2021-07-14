@@ -1,4 +1,4 @@
 
-![Crested shriketit](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Falcunculus_frontatus_-_Dharug_National_Park.jpg/525px-Falcunculus_frontatus_-_Dharug_National_Park.jpg)
+![R. J. Palacio](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/RJ_Palacio_at_BookCon_%2816102%29.jpg/450px-RJ_Palacio_at_BookCon_%2816102%29.jpg)
 
-*[Crested shriketit](https://wikipedia.org/wiki/File:Falcunculus_frontatus_-_Dharug_National_Park.jpg)*
+*[R. J. Palacio](https://wikipedia.org/wiki/File:RJ_Palacio_at_BookCon_(16102).jpg)*
