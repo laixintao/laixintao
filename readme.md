@@ -1,4 +1,4 @@
 
-![R. J. Palacio](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/RJ_Palacio_at_BookCon_%2816102%29.jpg/450px-RJ_Palacio_at_BookCon_%2816102%29.jpg)
+![Turgot map of Paris, complete](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/Turgot_map_of_Paris_-_Norman_B._Leventhal_Map_Center.jpg/938px-Turgot_map_of_Paris_-_Norman_B._Leventhal_Map_Center.jpg)
 
-*[R. J. Palacio](https://wikipedia.org/wiki/File:RJ_Palacio_at_BookCon_(16102).jpg)*
+*[Turgot map of Paris, complete](https://wikipedia.org/wiki/File:Turgot_map_of_Paris_-_Norman_B._Leventhal_Map_Center.jpg)*
