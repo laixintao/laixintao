@@ -1,4 +1,4 @@
 
-![Turgot map of Paris, complete](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/Turgot_map_of_Paris_-_Norman_B._Leventhal_Map_Center.jpg/938px-Turgot_map_of_Paris_-_Norman_B._Leventhal_Map_Center.jpg)
+![Calumma crypticum](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Blue-legged_chameleon_%28Calumma_crypticum%29_male_Ranomafana.jpg/525px-Blue-legged_chameleon_%28Calumma_crypticum%29_male_Ranomafana.jpg)
 
-*[Turgot map of Paris, complete](https://wikipedia.org/wiki/File:Turgot_map_of_Paris_-_Norman_B._Leventhal_Map_Center.jpg)*
+*[Calumma crypticum](https://wikipedia.org/wiki/File:Blue-legged_chameleon_(Calumma_crypticum)_male_Ranomafana.jpg)*
