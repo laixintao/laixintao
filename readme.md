@@ -1,4 +1,4 @@
 
-![Tranquility Base](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/Aldrin_Looks_Back_at_Tranquility_Base_-_GPN-2000-001102.jpg/525px-Aldrin_Looks_Back_at_Tranquility_Base_-_GPN-2000-001102.jpg)
+![Art and engraving on United States banknotes](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a6/BEP-RICE-Embarkation_of_the_Pilgrims_%28Weir%29.jpg/750px-BEP-RICE-Embarkation_of_the_Pilgrims_%28Weir%29.jpg)
 
-*[Tranquility Base](https://wikipedia.org/wiki/File:Aldrin_Looks_Back_at_Tranquility_Base_-_GPN-2000-001102.jpg)*
+*[Art and engraving on United States banknotes](https://wikipedia.org/wiki/File:BEP-RICE-Embarkation_of_the_Pilgrims_(Weir).jpg)*
