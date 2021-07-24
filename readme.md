@@ -1,4 +1,4 @@
 
-![Art and engraving on United States banknotes](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a6/BEP-RICE-Embarkation_of_the_Pilgrims_%28Weir%29.jpg/750px-BEP-RICE-Embarkation_of_the_Pilgrims_%28Weir%29.jpg)
+![Leptosia nina](https://upload.wikimedia.org/wikipedia/commons/thumb/3/35/Leptosia_nina-Kadavoor-2017-05-04-003.jpg/525px-Leptosia_nina-Kadavoor-2017-05-04-003.jpg)
 
-*[Art and engraving on United States banknotes](https://wikipedia.org/wiki/File:BEP-RICE-Embarkation_of_the_Pilgrims_(Weir).jpg)*
+*[Leptosia nina](https://wikipedia.org/wiki/File:Leptosia_nina-Kadavoor-2017-05-04-003.jpg)*
