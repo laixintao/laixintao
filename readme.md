@@ -1,4 +1,4 @@
 
-![Leptosia nina](https://upload.wikimedia.org/wikipedia/commons/thumb/3/35/Leptosia_nina-Kadavoor-2017-05-04-003.jpg/525px-Leptosia_nina-Kadavoor-2017-05-04-003.jpg)
+![John Adams Dix](https://upload.wikimedia.org/wikipedia/commons/thumb/2/29/DIX%2C_John_A-Treasury_%28BEP_engraved_portrait%29.jpg/450px-DIX%2C_John_A-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Leptosia nina](https://wikipedia.org/wiki/File:Leptosia_nina-Kadavoor-2017-05-04-003.jpg)*
+*[John Adams Dix](https://wikipedia.org/wiki/File:DIX,_John_A-Treasury_(BEP_engraved_portrait).jpg)*
