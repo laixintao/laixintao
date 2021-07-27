@@ -1,4 +1,4 @@
 
-![Castle of St John the Baptist](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/Castillo_de_San_Juan_Bautista.jpg/750px-Castillo_de_San_Juan_Bautista.jpg)
+![Japanese government-issued five-cent banknote for use in Malaya and Borneo](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/MAL-M2a-Malaya-Japanese_Occupation-Five_Cents_ND_%281942%29.jpg/525px-MAL-M2a-Malaya-Japanese_Occupation-Five_Cents_ND_%281942%29.jpg)
 
-*[Castle of St John the Baptist](https://wikipedia.org/wiki/File:Castillo_de_San_Juan_Bautista.jpg)*
+*[Japanese government-issued five-cent banknote for use in Malaya and Borneo](https://wikipedia.org/wiki/File:MAL-M2a-Malaya-Japanese_Occupation-Five_Cents_ND_(1942).jpg)*
