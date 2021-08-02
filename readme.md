@@ -1,4 +1,4 @@
 
-![Coprinellus micaceus](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c3/Coprinellus_micaceus_Glimmer-Tintling.jpg/600px-Coprinellus_micaceus_Glimmer-Tintling.jpg)
+![Bertha Lutz](https://upload.wikimedia.org/wikipedia/commons/thumb/2/28/Bertha_Lutz_1925.jpg/450px-Bertha_Lutz_1925.jpg)
 
-*[Coprinellus micaceus](https://wikipedia.org/wiki/File:Coprinellus_micaceus_Glimmer-Tintling.jpg)*
+*[Bertha Lutz](https://wikipedia.org/wiki/File:Bertha_Lutz_1925.jpg)*
