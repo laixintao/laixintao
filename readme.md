@@ -1,4 +1,4 @@
 
-![Bertha Lutz](https://upload.wikimedia.org/wikipedia/commons/thumb/2/28/Bertha_Lutz_1925.jpg/450px-Bertha_Lutz_1925.jpg)
+![Wheat Fields](https://upload.wikimedia.org/wikipedia/commons/thumb/8/85/Vincent_Van_Gogh_-_Corn_Harvest_in_Provence_-_Google_Art_Project.jpg/525px-Vincent_Van_Gogh_-_Corn_Harvest_in_Provence_-_Google_Art_Project.jpg)
 
-*[Bertha Lutz](https://wikipedia.org/wiki/File:Bertha_Lutz_1925.jpg)*
+*[Wheat Fields](https://wikipedia.org/wiki/File:Vincent_Van_Gogh_-_Corn_Harvest_in_Provence_-_Google_Art_Project.jpg)*
