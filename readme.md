@@ -1,4 +1,4 @@
 
-![Sapphire-throated hummingbird](https://upload.wikimedia.org/wikipedia/commons/thumb/6/67/Sapphire-throated_hummingbird_%28Lepidopyga_coeruleogularis_coeruleogularis%29_male.jpg/525px-Sapphire-throated_hummingbird_%28Lepidopyga_coeruleogularis_coeruleogularis%29_male.jpg)
+![Engraved portrait of Louis McLane](https://upload.wikimedia.org/wikipedia/commons/thumb/d/da/McLANE%2C_Louis-Treasury_%28BEP_engraved_portrait%29.jpg/450px-McLANE%2C_Louis-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Sapphire-throated hummingbird](https://wikipedia.org/wiki/File:Sapphire-throated_hummingbird_(Lepidopyga_coeruleogularis_coeruleogularis)_male.jpg)*
+*[Engraved portrait of Louis McLane](https://wikipedia.org/wiki/File:McLANE,_Louis-Treasury_(BEP_engraved_portrait).jpg)*
