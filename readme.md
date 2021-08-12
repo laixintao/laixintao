@@ -1,4 +1,4 @@
 
-![Engraved portrait of Louis McLane](https://upload.wikimedia.org/wikipedia/commons/thumb/d/da/McLANE%2C_Louis-Treasury_%28BEP_engraved_portrait%29.jpg/450px-McLANE%2C_Louis-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Oriental hornet](https://upload.wikimedia.org/wikipedia/commons/thumb/7/79/Vespa_orientalis_2.jpg/525px-Vespa_orientalis_2.jpg)
 
-*[Engraved portrait of Louis McLane](https://wikipedia.org/wiki/File:McLANE,_Louis-Treasury_(BEP_engraved_portrait).jpg)*
+*[Oriental hornet](https://wikipedia.org/wiki/File:Vespa_orientalis_2.jpg)*
