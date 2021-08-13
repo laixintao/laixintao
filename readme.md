@@ -1,4 +1,4 @@
 
-![Oriental hornet](https://upload.wikimedia.org/wikipedia/commons/thumb/7/79/Vespa_orientalis_2.jpg/525px-Vespa_orientalis_2.jpg)
+![Salvadoran peso](https://upload.wikimedia.org/wikipedia/commons/thumb/4/45/El_Salvador_1892_20_Pesos.jpg/600px-El_Salvador_1892_20_Pesos.jpg)
 
-*[Oriental hornet](https://wikipedia.org/wiki/File:Vespa_orientalis_2.jpg)*
+*[Salvadoran peso](https://wikipedia.org/wiki/File:El_Salvador_1892_20_Pesos.jpg)*
