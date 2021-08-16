@@ -1,4 +1,4 @@
 
-![George Holdich](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Lichfield_Cathedral_Organ%2C_Staffordshire%2C_UK_-_Diliff.jpg/525px-Lichfield_Cathedral_Organ%2C_Staffordshire%2C_UK_-_Diliff.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Henri_C._R._Presseq_-_Camille_Erlanger_-_Le_juif_polonais.jpg/450px-Henri_C._R._Presseq_-_Camille_Erlanger_-_Le_juif_polonais.jpg)
 
-*[George Holdich](https://wikipedia.org/wiki/File:Lichfield_Cathedral_Organ,_Staffordshire,_UK_-_Diliff.jpg)*
+*[Le Juif polonais](https://wikipedia.org/wiki/File:Henri_C._R._Presseq_-_Camille_Erlanger_-_Le_juif_polonais.jpg)*
