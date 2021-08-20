@@ -1,4 +1,4 @@
 
-![Plate 2 of Ignace-Gaston Pardies's celestial atlas](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0a/Ignace_Gaston_Pardies-Plate_2.jpg/750px-Ignace_Gaston_Pardies-Plate_2.jpg)
+![Bryce Canyon National Park](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c3/Inspiration_Point_Bryce_Canyon_November_2018_panorama.jpg/750px-Inspiration_Point_Bryce_Canyon_November_2018_panorama.jpg)
 
-*[Plate 2 of Ignace-Gaston Pardies's celestial atlas](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_2.jpg)*
+*[Bryce Canyon National Park](https://wikipedia.org/wiki/File:Inspiration_Point_Bryce_Canyon_November_2018_panorama.jpg)*
