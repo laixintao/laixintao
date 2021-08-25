@@ -1,4 +1,4 @@
 
-![Lockheed F-117 Nighthawk](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a1/F-117_Nighthawk_Front.jpg/525px-F-117_Nighthawk_Front.jpg)
+![Argiope trifasciata](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Argiope_July_2012-3.jpg/450px-Argiope_July_2012-3.jpg)
 
-*[Lockheed F-117 Nighthawk](https://wikipedia.org/wiki/File:F-117_Nighthawk_Front.jpg)*
+*[Argiope trifasciata](https://wikipedia.org/wiki/File:Argiope_July_2012-3.jpg)*
