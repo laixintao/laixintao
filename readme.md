@@ -1,4 +1,4 @@
 
-![Pieris brassicae](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Pieris_brassicae_%28caterpillar%29.jpg/600px-Pieris_brassicae_%28caterpillar%29.jpg)
+![Liliʻuokalani](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Liliuokalani%2C_c._1891.jpg/525px-Liliuokalani%2C_c._1891.jpg)
 
-*[Pieris brassicae](https://wikipedia.org/wiki/File:Pieris_brassicae_(caterpillar).jpg)*
+*[Liliʻuokalani](https://wikipedia.org/wiki/File:Liliuokalani,_c._1891.jpg)*
