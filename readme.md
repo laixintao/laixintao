@@ -1,4 +1,4 @@
 
-![Liliʻuokalani](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Liliuokalani%2C_c._1891.jpg/525px-Liliuokalani%2C_c._1891.jpg)
+![Severe acute respiratory syndrome coronavirus 2](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Novel_Coronavirus_SARS-CoV-2.jpg/600px-Novel_Coronavirus_SARS-CoV-2.jpg)
 
-*[Liliʻuokalani](https://wikipedia.org/wiki/File:Liliuokalani,_c._1891.jpg)*
+*[Severe acute respiratory syndrome coronavirus 2](https://wikipedia.org/wiki/File:Novel_Coronavirus_SARS-CoV-2.jpg)*
