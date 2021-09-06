@@ -1,4 +1,4 @@
 
-![Pauline Adams](https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Mrs._Pauline_Adams_147002v.jpg/450px-Mrs._Pauline_Adams_147002v.jpg)
+![Orange-headed thrush](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Zoothera_citrina_-_Khao_Yai.jpg/525px-Zoothera_citrina_-_Khao_Yai.jpg)
 
-*[Pauline Adams](https://wikipedia.org/wiki/File:Mrs._Pauline_Adams_147002v.jpg)*
+*[Orange-headed thrush](https://wikipedia.org/wiki/File:Zoothera_citrina_-_Khao_Yai.jpg)*
