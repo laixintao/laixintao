@@ -1,4 +1,4 @@
 
-![Orange-headed thrush](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Zoothera_citrina_-_Khao_Yai.jpg/525px-Zoothera_citrina_-_Khao_Yai.jpg)
+![Marie-Gabrielle Capet](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg/450px-Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg)
 
-*[Orange-headed thrush](https://wikipedia.org/wiki/File:Zoothera_citrina_-_Khao_Yai.jpg)*
+*[Marie-Gabrielle Capet](https://wikipedia.org/wiki/File:Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg)*
