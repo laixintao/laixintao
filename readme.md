@@ -1,4 +1,4 @@
 
-![Marie-Gabrielle Capet](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg/450px-Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg)
+![Howell Cobb](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg/450px-COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Marie-Gabrielle Capet](https://wikipedia.org/wiki/File:Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg)*
+*[Howell Cobb](https://wikipedia.org/wiki/File:COBB,_Howell-Treasury_(BEP_engraved_portrait).jpg)*
