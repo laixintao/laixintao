@@ -1,4 +1,4 @@
 
-![Howell Cobb](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg/450px-COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Ālī Qāpū](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg/600px-%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg)
 
-*[Howell Cobb](https://wikipedia.org/wiki/File:COBB,_Howell-Treasury_(BEP_engraved_portrait).jpg)*
+*[Ālī Qāpū](https://wikipedia.org/wiki/File:%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg)*
