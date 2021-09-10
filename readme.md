@@ -1,4 +1,4 @@
 
-![Ālī Qāpū](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg/600px-%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg)
+![Utah Territory](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Utah_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-Utah_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
 
-*[Ālī Qāpū](https://wikipedia.org/wiki/File:%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg)*
+*[Utah Territory](https://wikipedia.org/wiki/File:Utah_territory_coat_of_arms_(illustrated,_1876).jpg)*
