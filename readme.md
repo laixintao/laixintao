@@ -1,4 +1,4 @@
 
-![Papilio polymnestor](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Papilio_polymnestor-Kadavoor-2016-07-27-002.jpg/600px-Papilio_polymnestor-Kadavoor-2016-07-27-002.jpg)
+![Martha Ann Honeywell](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg/525px-Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg)
 
-*[Papilio polymnestor](https://wikipedia.org/wiki/File:Papilio_polymnestor-Kadavoor-2016-07-27-002.jpg)*
+*[Martha Ann Honeywell](https://wikipedia.org/wiki/File:Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg)*
