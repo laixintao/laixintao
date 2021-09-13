@@ -1,4 +1,4 @@
 
-![Martha Ann Honeywell](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg/525px-Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg)
+![Philip Francis Thomas](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6e/THOMAS%2C_Philip_F-Treasury_%28BEP_engraved_portrait%29.jpg/450px-THOMAS%2C_Philip_F-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Martha Ann Honeywell](https://wikipedia.org/wiki/File:Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg)*
+*[Philip Francis Thomas](https://wikipedia.org/wiki/File:THOMAS,_Philip_F-Treasury_(BEP_engraved_portrait).jpg)*
