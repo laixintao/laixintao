@@ -1,4 +1,4 @@
 
-![Total internal reflection](https://upload.wikimedia.org/wikipedia/commons/thumb/8/80/Internal_reflection%2C_Anna.jpg/525px-Internal_reflection%2C_Anna.jpg)
+![Red-backed shrike](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Red-backed_shrike.jpg/600px-Red-backed_shrike.jpg)
 
-*[Total internal reflection](https://wikipedia.org/wiki/File:Internal_reflection,_Anna.jpg)*
+*[Red-backed shrike](https://wikipedia.org/wiki/File:Red-backed_shrike.jpg)*
