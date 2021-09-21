@@ -1,4 +1,4 @@
 
-![Giacomo Meyerbeer](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f0/Poster_for_Le_pardon_de_Plo%C3%ABrmel_1859.jpg/525px-Poster_for_Le_pardon_de_Plo%C3%ABrmel_1859.jpg)
+![Indian rhinoceros](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ec/Indian_rhinoceros_%28Rhinoceros_unicornis%29_4.jpg/525px-Indian_rhinoceros_%28Rhinoceros_unicornis%29_4.jpg)
 
-*[Giacomo Meyerbeer](https://wikipedia.org/wiki/File:Poster_for_Le_pardon_de_Plo%C3%ABrmel_1859.jpg)*
+*[Indian rhinoceros](https://wikipedia.org/wiki/File:Indian_rhinoceros_(Rhinoceros_unicornis)_4.jpg)*
