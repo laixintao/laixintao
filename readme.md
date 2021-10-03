@@ -1,4 +1,4 @@
 
-![Australian owlet-nightjar](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/Aegotheles_chrisoptus_-_Catlereigh_Nature_Reserve.jpg/525px-Aegotheles_chrisoptus_-_Catlereigh_Nature_Reserve.jpg)
+![Paul von Hindenburg](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg/450px-Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg)
 
-*[Australian owlet-nightjar](https://wikipedia.org/wiki/File:Aegotheles_chrisoptus_-_Catlereigh_Nature_Reserve.jpg)*
+*[Paul von Hindenburg](https://wikipedia.org/wiki/File:Paul_von_Hindenburg_(1914)_von_Nicola_Perscheid.jpg)*
