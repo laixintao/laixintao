@@ -1,4 +1,4 @@
 
-![Paul von Hindenburg](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg/450px-Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg)
+![Black skimmer](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/Black_skimmer_%28Rynchops_niger%29_in_flight.jpg/600px-Black_skimmer_%28Rynchops_niger%29_in_flight.jpg)
 
-*[Paul von Hindenburg](https://wikipedia.org/wiki/File:Paul_von_Hindenburg_(1914)_von_Nicola_Perscheid.jpg)*
+*[Black skimmer](https://wikipedia.org/wiki/File:Black_skimmer_(Rynchops_niger)_in_flight.jpg)*
