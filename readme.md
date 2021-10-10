@@ -1,4 +1,4 @@
 
-![Coat of arms of Texas](https://upload.wikimedia.org/wikipedia/commons/thumb/1/19/Texas_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/450px-Texas_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Marsh frog](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/Marsh_frog_%28Pelophylax_ridibundus%29.jpg/600px-Marsh_frog_%28Pelophylax_ridibundus%29.jpg)
 
-*[Coat of arms of Texas](https://wikipedia.org/wiki/File:Texas_state_coat_of_arms_(illustrated,_1876).jpg)*
+*[Marsh frog](https://wikipedia.org/wiki/File:Marsh_frog_(Pelophylax_ridibundus).jpg)*
