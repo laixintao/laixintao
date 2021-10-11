@@ -1,4 +1,4 @@
 
-![Marsh frog](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/Marsh_frog_%28Pelophylax_ridibundus%29.jpg/600px-Marsh_frog_%28Pelophylax_ridibundus%29.jpg)
+![Giuseppe Verdi](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Verdi_conducting_Aida_in_Paris_1880_-_Gallica_-_Restoration.jpg/525px-Verdi_conducting_Aida_in_Paris_1880_-_Gallica_-_Restoration.jpg)
 
-*[Marsh frog](https://wikipedia.org/wiki/File:Marsh_frog_(Pelophylax_ridibundus).jpg)*
+*[Giuseppe Verdi](https://wikipedia.org/wiki/File:Verdi_conducting_Aida_in_Paris_1880_-_Gallica_-_Restoration.jpg)*
