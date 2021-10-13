@@ -1,4 +1,4 @@
 
-![NASA space-flown Gemini and Apollo medallions](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b8/Apollo_10_Flown_Silver_Robbins_Medallion_%28SN-70%29.jpg/450px-Apollo_10_Flown_Silver_Robbins_Medallion_%28SN-70%29.jpg)
+![Art and engraving on United States banknotes](https://upload.wikimedia.org/wikipedia/commons/thumb/1/15/BEP-%28Multiple%29-Landing_of_Columbus_%28Vanderlyn%29.jpg/750px-BEP-%28Multiple%29-Landing_of_Columbus_%28Vanderlyn%29.jpg)
 
-*[NASA space-flown Gemini and Apollo medallions](https://wikipedia.org/wiki/File:Apollo_10_Flown_Silver_Robbins_Medallion_(SN-70).jpg)*
+*[Art and engraving on United States banknotes](https://wikipedia.org/wiki/File:BEP-(Multiple)-Landing_of_Columbus_(Vanderlyn).jpg)*
