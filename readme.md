@@ -1,4 +1,4 @@
 
-![Art and engraving on United States banknotes](https://upload.wikimedia.org/wikipedia/commons/thumb/1/15/BEP-%28Multiple%29-Landing_of_Columbus_%28Vanderlyn%29.jpg/750px-BEP-%28Multiple%29-Landing_of_Columbus_%28Vanderlyn%29.jpg)
+![Ferdinand VII of Spain](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/Francisco_Goya_-_Portrait_of_Ferdinand_VII_of_Spain_in_his_robes_of_state_%281815%29_-_Prado.jpg/450px-Francisco_Goya_-_Portrait_of_Ferdinand_VII_of_Spain_in_his_robes_of_state_%281815%29_-_Prado.jpg)
 
-*[Art and engraving on United States banknotes](https://wikipedia.org/wiki/File:BEP-(Multiple)-Landing_of_Columbus_(Vanderlyn).jpg)*
+*[Ferdinand VII of Spain](https://wikipedia.org/wiki/File:Francisco_Goya_-_Portrait_of_Ferdinand_VII_of_Spain_in_his_robes_of_state_(1815)_-_Prado.jpg)*
