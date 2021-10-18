@@ -1,4 +1,4 @@
 
-![William P. Fessenden](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/FESSENDEN%2C_William_P-Treasury_%28BEP_engraved_portrait%29.jpg/450px-FESSENDEN%2C_William_P-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Old Cathedral, Brescia](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2f/Duomo_vecchio_facciata_Brescia.jpg/525px-Duomo_vecchio_facciata_Brescia.jpg)
 
-*[William P. Fessenden](https://wikipedia.org/wiki/File:FESSENDEN,_William_P-Treasury_(BEP_engraved_portrait).jpg)*
+*[Old Cathedral, Brescia](https://wikipedia.org/wiki/File:Duomo_vecchio_facciata_Brescia.jpg)*
