@@ -1,4 +1,4 @@
 
-![Kriéger Company of Electric Vehicles](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0d/Senator_George_P._Wetmore_of_Rhode_Island_in_a_Krieger_electric_automobile.jpg/525px-Senator_George_P._Wetmore_of_Rhode_Island_in_a_Krieger_electric_automobile.jpg)
+![Red-billed gull](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ef/Red-billed_gull%2C_Red_Zone%2C_Christchurch%2C_New_Zealand.jpg/525px-Red-billed_gull%2C_Red_Zone%2C_Christchurch%2C_New_Zealand.jpg)
 
-*[Kriéger Company of Electric Vehicles](https://wikipedia.org/wiki/File:Senator_George_P._Wetmore_of_Rhode_Island_in_a_Krieger_electric_automobile.jpg)*
+*[Red-billed gull](https://wikipedia.org/wiki/File:Red-billed_gull,_Red_Zone,_Christchurch,_New_Zealand.jpg)*
