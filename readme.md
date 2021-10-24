@@ -1,4 +1,4 @@
 
-![German New Guinea](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/German_New_Guinea_1895-A_20_Mark.jpg/600px-German_New_Guinea_1895-A_20_Mark.jpg)
+![Wallace's flying frog](https://upload.wikimedia.org/wikipedia/commons/thumb/4/45/Rhacophorus_nigropalmatus.jpg/600px-Rhacophorus_nigropalmatus.jpg)
 
-*[German New Guinea](https://wikipedia.org/wiki/File:German_New_Guinea_1895-A_20_Mark.jpg)*
+*[Wallace's flying frog](https://wikipedia.org/wiki/File:Rhacophorus_nigropalmatus.jpg)*
