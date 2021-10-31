@@ -1,4 +1,4 @@
 
-![Marsh fritillary](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Marsh_fritillaries_%28Euphydryas_aurinia%29_mating.jpg/525px-Marsh_fritillaries_%28Euphydryas_aurinia%29_mating.jpg)
+![George M. Bibb](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/BIBB%2C_George_M-Treasury_%28BEP_engraved_portrait%29.jpg/450px-BIBB%2C_George_M-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Marsh fritillary](https://wikipedia.org/wiki/File:Marsh_fritillaries_(Euphydryas_aurinia)_mating.jpg)*
+*[George M. Bibb](https://wikipedia.org/wiki/File:BIBB,_George_M-Treasury_(BEP_engraved_portrait).jpg)*
