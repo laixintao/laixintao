@@ -1,4 +1,4 @@
 
-![Over the shoulder shot](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Edison%27s_Greatest_Marvel-The_Vitascope_-_Restoration.jpg/525px-Edison%27s_Greatest_Marvel-The_Vitascope_-_Restoration.jpg)
+![Stereoscopy](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Passiflora_caerulea_STEREO_%28R-L%29_2019-06-27.jpg/750px-Passiflora_caerulea_STEREO_%28R-L%29_2019-06-27.jpg)
 
-*[Over the shoulder shot](https://wikipedia.org/wiki/File:Edison%27s_Greatest_Marvel-The_Vitascope_-_Restoration.jpg)*
+*[Stereoscopy](https://wikipedia.org/wiki/File:Passiflora_caerulea_STEREO_(R-L)_2019-06-27.jpg)*
