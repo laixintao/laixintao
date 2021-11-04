@@ -1,4 +1,4 @@
 
-![William Adams Richardson](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/RICHARDSON%2C_William_A-Treasury_%28BEP_engraved_portrait%29.jpg/450px-RICHARDSON%2C_William_A-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Anne Dallas Dudley](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ed/Anne_Dallas_Dudley_LOC.jpg/450px-Anne_Dallas_Dudley_LOC.jpg)
 
-*[William Adams Richardson](https://wikipedia.org/wiki/File:RICHARDSON,_William_A-Treasury_(BEP_engraved_portrait).jpg)*
+*[Anne Dallas Dudley](https://wikipedia.org/wiki/File:Anne_Dallas_Dudley_LOC.jpg)*
