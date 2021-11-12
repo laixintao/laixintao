@@ -1,4 +1,4 @@
 
-![Landscape near Arles](https://upload.wikimedia.org/wikipedia/commons/thumb/5/58/Gauguin%2C_Paul_-_Landscape_near_Arles_-_Google_Art_Project.jpg/525px-Gauguin%2C_Paul_-_Landscape_near_Arles_-_Google_Art_Project.jpg)
+![Nelly Martyl](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/Nelly_Martyl_by_Jean_Reutlinger_%28Image_10715%29.jpg/450px-Nelly_Martyl_by_Jean_Reutlinger_%28Image_10715%29.jpg)
 
-*[Landscape near Arles](https://wikipedia.org/wiki/File:Gauguin,_Paul_-_Landscape_near_Arles_-_Google_Art_Project.jpg)*
+*[Nelly Martyl](https://wikipedia.org/wiki/File:Nelly_Martyl_by_Jean_Reutlinger_(Image_10715).jpg)*
