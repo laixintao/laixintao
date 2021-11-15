@@ -1,4 +1,4 @@
 
-![John A. Dahlgren](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Admiral_John_Dahlgren_-_NARA_-_528718_edit.jpg/450px-Admiral_John_Dahlgren_-_NARA_-_528718_edit.jpg)
+![La Esmeralda](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_3%2C_Scene_2_set.jpg/600px-Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_3%2C_Scene_2_set.jpg)
 
-*[John A. Dahlgren](https://wikipedia.org/wiki/File:Admiral_John_Dahlgren_-_NARA_-_528718_edit.jpg)*
+*[La Esmeralda](https://wikipedia.org/wiki/File:Charles-Antoine_Cambon_-_La_Esmeralda,_Act_3,_Scene_2_set.jpg)*
