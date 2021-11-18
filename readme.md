@@ -1,4 +1,4 @@
 
-![Cheetah](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Cheetah_%28Acinonyx_jubatus%29_cub.jpg/525px-Cheetah_%28Acinonyx_jubatus%29_cub.jpg)
+![Georg Braun](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Braun%26Hogenberg_Trier_1572.jpg/525px-Braun%26Hogenberg_Trier_1572.jpg)
 
-*[Cheetah](https://wikipedia.org/wiki/File:Cheetah_(Acinonyx_jubatus)_cub.jpg)*
+*[Georg Braun](https://wikipedia.org/wiki/File:Braun%26Hogenberg_Trier_1572.jpg)*
