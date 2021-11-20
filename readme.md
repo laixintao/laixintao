@@ -1,4 +1,4 @@
 
-![Utah monolith](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Utah_Desert_Monolith.jpg/450px-Utah_Desert_Monolith.jpg)
+![Alan Bean](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Alan_Bean_NASA_portrait_%28S69-38859%29.jpg/450px-Alan_Bean_NASA_portrait_%28S69-38859%29.jpg)
 
-*[Utah monolith](https://wikipedia.org/wiki/File:Utah_Desert_Monolith.jpg)*
+*[Alan Bean](https://wikipedia.org/wiki/File:Alan_Bean_NASA_portrait_(S69-38859).jpg)*
