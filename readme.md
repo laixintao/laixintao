@@ -1,4 +1,4 @@
 
-![Alan Bean](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Alan_Bean_NASA_portrait_%28S69-38859%29.jpg/450px-Alan_Bean_NASA_portrait_%28S69-38859%29.jpg)
+![Ruddy turnstone](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Arenaria_interpres_2_-_Boat_Harbour_%28cropped%29.jpg/525px-Arenaria_interpres_2_-_Boat_Harbour_%28cropped%29.jpg)
 
-*[Alan Bean](https://wikipedia.org/wiki/File:Alan_Bean_NASA_portrait_(S69-38859).jpg)*
+*[Ruddy turnstone](https://wikipedia.org/wiki/File:Arenaria_interpres_2_-_Boat_Harbour_(cropped).jpg)*
