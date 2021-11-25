@@ -1,4 +1,4 @@
 
-![Northern palm squirrel](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Five-striped_palm_squirrel_%28Funambulus_pennantii%29.jpg/450px-Five-striped_palm_squirrel_%28Funambulus_pennantii%29.jpg)
+![Eswatini](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/Princess_Sikhanyiso_Dlamini_of_Eswatini.jpg/600px-Princess_Sikhanyiso_Dlamini_of_Eswatini.jpg)
 
-*[Northern palm squirrel](https://wikipedia.org/wiki/File:Five-striped_palm_squirrel_(Funambulus_pennantii).jpg)*
+*[Eswatini](https://wikipedia.org/wiki/File:Princess_Sikhanyiso_Dlamini_of_Eswatini.jpg)*
