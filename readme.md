@@ -1,4 +1,4 @@
 
-![Early American currency](https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/US-Colonial_%28PA-149%29-Pennsylvania-20_Mar_1771_OBV.jpg/450px-US-Colonial_%28PA-149%29-Pennsylvania-20_Mar_1771_OBV.jpg)
+![Cygnus](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Sidney_Hall_-_Urania%27s_Mirror_-_Lacerta%2C_Cygnus%2C_Lyra%2C_Vulpecula_and_Anser.jpg/750px-Sidney_Hall_-_Urania%27s_Mirror_-_Lacerta%2C_Cygnus%2C_Lyra%2C_Vulpecula_and_Anser.jpg)
 
-*[Early American currency](https://wikipedia.org/wiki/File:US-Colonial_(PA-149)-Pennsylvania-20_Mar_1771_OBV.jpg)*
+*[Cygnus](https://wikipedia.org/wiki/File:Sidney_Hall_-_Urania%27s_Mirror_-_Lacerta,_Cygnus,_Lyra,_Vulpecula_and_Anser.jpg)*
