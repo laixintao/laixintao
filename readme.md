@@ -1,4 +1,4 @@
 
-![Northern royal albatross](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/Diomedea_sanfordi_-_SE_Tasmania_2019.jpg/600px-Diomedea_sanfordi_-_SE_Tasmania_2019.jpg)
+![Seal of Indiana](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Indiana_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/450px-Indiana_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
 
-*[Northern royal albatross](https://wikipedia.org/wiki/File:Diomedea_sanfordi_-_SE_Tasmania_2019.jpg)*
+*[Seal of Indiana](https://wikipedia.org/wiki/File:Indiana_state_coat_of_arms_(illustrated,_1876).jpg)*
