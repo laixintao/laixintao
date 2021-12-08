@@ -1,4 +1,4 @@
 
-![Quo Vadis](https://upload.wikimedia.org/wikipedia/commons/thumb/1/12/Poster_for_Quo_Vadis_%281913_silent_film%29.jpg/450px-Poster_for_Quo_Vadis_%281913_silent_film%29.jpg)
+![Cape starling](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fe/Cape_glossy_starling_%28Lamprotornis_nitens%29.jpg/525px-Cape_glossy_starling_%28Lamprotornis_nitens%29.jpg)
 
-*[Quo Vadis](https://wikipedia.org/wiki/File:Poster_for_Quo_Vadis_(1913_silent_film).jpg)*
+*[Cape starling](https://wikipedia.org/wiki/File:Cape_glossy_starling_(Lamprotornis_nitens).jpg)*
