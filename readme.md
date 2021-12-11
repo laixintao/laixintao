@@ -1,4 +1,4 @@
 
-![Attacus taprobanis](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Attacus_taprobanis-Kadavoor-2018-07-07-001.jpg/525px-Attacus_taprobanis-Kadavoor-2018-07-07-001.jpg)
+![Ubu Roi](https://upload.wikimedia.org/wikipedia/commons/thumb/1/17/Programme_for_the_premi%C3%A8re_of_Ubu_Roi.jpg/525px-Programme_for_the_premi%C3%A8re_of_Ubu_Roi.jpg)
 
-*[Attacus taprobanis](https://wikipedia.org/wiki/File:Attacus_taprobanis-Kadavoor-2018-07-07-001.jpg)*
+*[Ubu Roi](https://wikipedia.org/wiki/File:Programme_for_the_premi%C3%A8re_of_Ubu_Roi.jpg)*
