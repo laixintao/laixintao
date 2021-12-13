@@ -1,4 +1,4 @@
 
-![Eldridge Street Synagogue](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Eldridge_Street_Synagogue_%2842773%29.jpg/525px-Eldridge_Street_Synagogue_%2842773%29.jpg)
+![New Zealand dotterel](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Charadrius_obscurus_aquilonius_-_Point_Chevalier.jpg/525px-Charadrius_obscurus_aquilonius_-_Point_Chevalier.jpg)
 
-*[Eldridge Street Synagogue](https://wikipedia.org/wiki/File:Eldridge_Street_Synagogue_(42773).jpg)*
+*[New Zealand dotterel](https://wikipedia.org/wiki/File:Charadrius_obscurus_aquilonius_-_Point_Chevalier.jpg)*
