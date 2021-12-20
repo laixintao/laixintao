@@ -1,4 +1,4 @@
 
-![The Contrabandista](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Robert_Jacob_Hamerton_-_Poster_for_F._C._Burnand_and_Arthur_Sullivan%27s_The_Contrabandista.jpg/675px-Robert_Jacob_Hamerton_-_Poster_for_F._C._Burnand_and_Arthur_Sullivan%27s_The_Contrabandista.jpg)
+![Common house gecko](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f6/Hemidactylus_frenatus_mating%2C_ventral_view.jpg/450px-Hemidactylus_frenatus_mating%2C_ventral_view.jpg)
 
-*[The Contrabandista](https://wikipedia.org/wiki/File:Robert_Jacob_Hamerton_-_Poster_for_F._C._Burnand_and_Arthur_Sullivan%27s_The_Contrabandista.jpg)*
+*[Common house gecko](https://wikipedia.org/wiki/File:Hemidactylus_frenatus_mating,_ventral_view.jpg)*
