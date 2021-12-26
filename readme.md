@@ -1,4 +1,4 @@
 
-![Jenny Nyström](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ac/Julemotiv_tegnet_av_Jenny_Nystr%C3%B8m_%2824207693358%29.jpg/450px-Julemotiv_tegnet_av_Jenny_Nystr%C3%B8m_%2824207693358%29.jpg)
+![Melun Diptych](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Fouquet_Madonna.jpg/525px-Fouquet_Madonna.jpg)
 
-*[Jenny Nyström](https://wikipedia.org/wiki/File:Julemotiv_tegnet_av_Jenny_Nystr%C3%B8m_(24207693358).jpg)*
+*[Melun Diptych](https://wikipedia.org/wiki/File:Fouquet_Madonna.jpg)*
