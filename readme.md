@@ -1,4 +1,4 @@
 
-![South-western black rhinoceros](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/South-western_black_rhinoceros_%28Diceros_bicornis_occidentalis%29_female.jpg/600px-South-western_black_rhinoceros_%28Diceros_bicornis_occidentalis%29_female.jpg)
+![Wat Phra Si Rattana Mahathat](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Phra_Phuttha_Chinnarat_%28II%29.jpg/600px-Phra_Phuttha_Chinnarat_%28II%29.jpg)
 
-*[South-western black rhinoceros](https://wikipedia.org/wiki/File:South-western_black_rhinoceros_(Diceros_bicornis_occidentalis)_female.jpg)*
+*[Wat Phra Si Rattana Mahathat](https://wikipedia.org/wiki/File:Phra_Phuttha_Chinnarat_(II).jpg)*
