@@ -1,4 +1,4 @@
 
-![Euro sign](https://upload.wikimedia.org/wikipedia/commons/thumb/5/57/Euro_Construction.svg/600px-Euro_Construction.svg.png)
+![Thin section](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Thin_section_scan_crossed_polarizers_Siilinj%C3%A4rvi_R636-105.90.jpg/750px-Thin_section_scan_crossed_polarizers_Siilinj%C3%A4rvi_R636-105.90.jpg)
 
-*[Euro sign](https://wikipedia.org/wiki/File:Euro_Construction.svg)*
+*[Thin section](https://wikipedia.org/wiki/File:Thin_section_scan_crossed_polarizers_Siilinj%C3%A4rvi_R636-105.90.jpg)*
