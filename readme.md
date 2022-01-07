@@ -1,4 +1,4 @@
 
-![Umberto Eco](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Italiaanse_schrijver_Umberto_Eco%2C_portret.jpg/450px-Italiaanse_schrijver_Umberto_Eco%2C_portret.jpg)
+![Gliophorus chromolimoneus](https://upload.wikimedia.org/wikipedia/commons/thumb/7/70/Gliophorus_chromolimoneus_-_Ferndale_Park.jpg/450px-Gliophorus_chromolimoneus_-_Ferndale_Park.jpg)
 
-*[Umberto Eco](https://wikipedia.org/wiki/File:Italiaanse_schrijver_Umberto_Eco,_portret.jpg)*
+*[Gliophorus chromolimoneus](https://wikipedia.org/wiki/File:Gliophorus_chromolimoneus_-_Ferndale_Park.jpg)*
