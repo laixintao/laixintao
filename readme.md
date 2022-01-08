@@ -1,4 +1,4 @@
 
-![Gliophorus chromolimoneus](https://upload.wikimedia.org/wikipedia/commons/thumb/7/70/Gliophorus_chromolimoneus_-_Ferndale_Park.jpg/450px-Gliophorus_chromolimoneus_-_Ferndale_Park.jpg)
+![Flag and seal of Illinois](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Illinois_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-Illinois_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
 
-*[Gliophorus chromolimoneus](https://wikipedia.org/wiki/File:Gliophorus_chromolimoneus_-_Ferndale_Park.jpg)*
+*[Flag and seal of Illinois](https://wikipedia.org/wiki/File:Illinois_state_coat_of_arms_(illustrated,_1876).jpg)*
