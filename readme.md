@@ -1,4 +1,4 @@
 
-![Flag and seal of Illinois](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Illinois_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-Illinois_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![POLIN Museum of the History of Polish Jews](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg/600px-Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg)
 
-*[Flag and seal of Illinois](https://wikipedia.org/wiki/File:Illinois_state_coat_of_arms_(illustrated,_1876).jpg)*
+*[POLIN Museum of the History of Polish Jews](https://wikipedia.org/wiki/File:Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg)*
