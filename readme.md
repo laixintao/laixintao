@@ -1,4 +1,4 @@
 
-![POLIN Museum of the History of Polish Jews](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg/600px-Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg)
+![Carrie Chapman Catt](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg/450px-Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg)
 
-*[POLIN Museum of the History of Polish Jews](https://wikipedia.org/wiki/File:Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg)*
+*[Carrie Chapman Catt](https://wikipedia.org/wiki/File:Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg)*
