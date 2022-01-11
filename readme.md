@@ -1,4 +1,4 @@
 
-![Carrie Chapman Catt](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg/450px-Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg)
+![Southern rough-winged swallow](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Southern_rough-winged_swallow_%28Stelgidopteryx_ruficollis_ruficollis%29.JPG/525px-Southern_rough-winged_swallow_%28Stelgidopteryx_ruficollis_ruficollis%29.JPG)
 
-*[Carrie Chapman Catt](https://wikipedia.org/wiki/File:Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg)*
+*[Southern rough-winged swallow](https://wikipedia.org/wiki/File:Southern_rough-winged_swallow_(Stelgidopteryx_ruficollis_ruficollis).JPG)*
