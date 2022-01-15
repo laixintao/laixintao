@@ -1,4 +1,4 @@
 
-![Queen bee](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ac/Apis_mellifera_scutellata_1355021.jpg/450px-Apis_mellifera_scutellata_1355021.jpg)
+![Messier 78](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4a/Messier_78.jpg/600px-Messier_78.jpg)
 
-*[Queen bee](https://wikipedia.org/wiki/File:Apis_mellifera_scutellata_1355021.jpg)*
+*[Messier 78](https://wikipedia.org/wiki/File:Messier_78.jpg)*
