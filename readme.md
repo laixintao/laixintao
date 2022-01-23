@@ -1,4 +1,4 @@
 
-![I puritani](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Luigi_Verardi_after_Dominico_Ferri_-_Vincenzo_Bellini_-_Th%C3%A9atre_Royal_Italien._Salle_d%27armes_dans_l%27Op%C3%A9ra_I_Puritani.jpg/750px-Luigi_Verardi_after_Dominico_Ferri_-_Vincenzo_Bellini_-_Th%C3%A9atre_Royal_Italien._Salle_d%27armes_dans_l%27Op%C3%A9ra_I_Puritani.jpg)
+![Charaxes jasius](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg/525px-Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg)
 
-*[I puritani](https://wikipedia.org/wiki/File:Luigi_Verardi_after_Dominico_Ferri_-_Vincenzo_Bellini_-_Th%C3%A9atre_Royal_Italien._Salle_d%27armes_dans_l%27Op%C3%A9ra_I_Puritani.jpg)*
+*[Charaxes jasius](https://wikipedia.org/wiki/File:Two-tailed_pasha_(Charaxes_jasius_jasius)_Greece.jpg)*
