@@ -1,4 +1,4 @@
 
-![Charaxes jasius](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg/525px-Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg)
+![Édouard Manet](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/%C3%89douard_Manet%2C_en_buste%2C_de_face_-_Nadar.jpg/450px-%C3%89douard_Manet%2C_en_buste%2C_de_face_-_Nadar.jpg)
 
-*[Charaxes jasius](https://wikipedia.org/wiki/File:Two-tailed_pasha_(Charaxes_jasius_jasius)_Greece.jpg)*
+*[Édouard Manet](https://wikipedia.org/wiki/File:%C3%89douard_Manet,_en_buste,_de_face_-_Nadar.jpg)*
