@@ -1,4 +1,4 @@
 
-![Édouard Manet](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/%C3%89douard_Manet%2C_en_buste%2C_de_face_-_Nadar.jpg/450px-%C3%89douard_Manet%2C_en_buste%2C_de_face_-_Nadar.jpg)
+![Winter Palace](https://upload.wikimedia.org/wikipedia/commons/thumb/7/74/RUS-2016-Aerial-SPB-Winter_Palace_%28crop%29.jpg/750px-RUS-2016-Aerial-SPB-Winter_Palace_%28crop%29.jpg)
 
-*[Édouard Manet](https://wikipedia.org/wiki/File:%C3%89douard_Manet,_en_buste,_de_face_-_Nadar.jpg)*
+*[Winter Palace](https://wikipedia.org/wiki/File:RUS-2016-Aerial-SPB-Winter_Palace_(crop).jpg)*
