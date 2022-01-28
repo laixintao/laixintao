@@ -1,4 +1,4 @@
 
-![Australian brushturkey](https://upload.wikimedia.org/wikipedia/commons/thumb/6/67/Australian_Brushturkey_2_-_Newington.jpg/525px-Australian_Brushturkey_2_-_Newington.jpg)
+![Lidar](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bd/Ouster_OS1-64_lidar_point_cloud_of_intersection_of_Folsom_and_Dore_St%2C_San_Francisco.png/750px-Ouster_OS1-64_lidar_point_cloud_of_intersection_of_Folsom_and_Dore_St%2C_San_Francisco.png)
 
-*[Australian brushturkey](https://wikipedia.org/wiki/File:Australian_Brushturkey_2_-_Newington.jpg)*
+*[Lidar](https://wikipedia.org/wiki/File:Ouster_OS1-64_lidar_point_cloud_of_intersection_of_Folsom_and_Dore_St,_San_Francisco.png)*
