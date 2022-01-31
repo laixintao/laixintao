@@ -1,4 +1,4 @@
 
-![Albert Gallatin](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d0/GALLATIN%2C_Albert-Treasury_%28BEP_engraved_portrait%29.jpg/450px-GALLATIN%2C_Albert-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Swallow-tailed bee-eater](https://upload.wikimedia.org/wikipedia/commons/thumb/9/97/Swallow-tailed_bee-eater_%28Merops_hirundineus_chrysolaimus%29.jpg/525px-Swallow-tailed_bee-eater_%28Merops_hirundineus_chrysolaimus%29.jpg)
 
-*[Albert Gallatin](https://wikipedia.org/wiki/File:GALLATIN,_Albert-Treasury_(BEP_engraved_portrait).jpg)*
+*[Swallow-tailed bee-eater](https://wikipedia.org/wiki/File:Swallow-tailed_bee-eater_(Merops_hirundineus_chrysolaimus).jpg)*
