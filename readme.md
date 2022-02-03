@@ -1,4 +1,4 @@
 
-![Valerie Thomas](https://upload.wikimedia.org/wikipedia/commons/thumb/8/82/Valerie_L._Thomas_standing_with_a_stack_of_early_Landsat_Computer_Compatible_Tapes.jpg/450px-Valerie_L._Thomas_standing_with_a_stack_of_early_Landsat_Computer_Compatible_Tapes.jpg)
+![Alice Locke Park](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/Alice_Park_-_Records_of_the_National_Woman%27s_Party.jpg/450px-Alice_Park_-_Records_of_the_National_Woman%27s_Party.jpg)
 
-*[Valerie Thomas](https://wikipedia.org/wiki/File:Valerie_L._Thomas_standing_with_a_stack_of_early_Landsat_Computer_Compatible_Tapes.jpg)*
+*[Alice Locke Park](https://wikipedia.org/wiki/File:Alice_Park_-_Records_of_the_National_Woman%27s_Party.jpg)*
