@@ -1,4 +1,4 @@
 
-![Male hooded robin](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Melanodryas_cucullata_-_Glen_Davis.jpg/525px-Melanodryas_cucullata_-_Glen_Davis.jpg)
+![Heinrich C. Berann](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ed/Heinrich_Berann_NPS_Panorama_of_Yosemite_without_labels.jpg/750px-Heinrich_Berann_NPS_Panorama_of_Yosemite_without_labels.jpg)
 
-*[Male hooded robin](https://wikipedia.org/wiki/File:Melanodryas_cucullata_-_Glen_Davis.jpg)*
+*[Heinrich C. Berann](https://wikipedia.org/wiki/File:Heinrich_Berann_NPS_Panorama_of_Yosemite_without_labels.jpg)*
