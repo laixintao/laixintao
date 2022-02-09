@@ -1,4 +1,4 @@
 
-![Trosia nigropunctigera](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Rosy_ermine_moth_%28Trosia_nigropunctigera%29.jpg/600px-Rosy_ermine_moth_%28Trosia_nigropunctigera%29.jpg)
+![Plate 3 of Ignace-Gaston Pardies's celestial atlas](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Ignace_Gaston_Pardies-Plate_3.jpg/750px-Ignace_Gaston_Pardies-Plate_3.jpg)
 
-*[Trosia nigropunctigera](https://wikipedia.org/wiki/File:Rosy_ermine_moth_(Trosia_nigropunctigera).jpg)*
+*[Plate 3 of Ignace-Gaston Pardies's celestial atlas](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_3.jpg)*
