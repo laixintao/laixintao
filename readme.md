@@ -1,4 +1,4 @@
 
-![The Tales of Hoffmann](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Pierre-Auguste_Lamy_%28%3F%29_-_Les_contes_d%27Hoffmann_by_Jacques_Offenbach%2C_prologue.jpg/525px-Pierre-Auguste_Lamy_%28%3F%29_-_Les_contes_d%27Hoffmann_by_Jacques_Offenbach%2C_prologue.jpg)
+![Obverse and reverse of a 1874 South African one-pound coin](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/South_Africa_1874_One_Pond.jpg/600px-South_Africa_1874_One_Pond.jpg)
 
-*[The Tales of Hoffmann](https://wikipedia.org/wiki/File:Pierre-Auguste_Lamy_(%3F)_-_Les_contes_d%27Hoffmann_by_Jacques_Offenbach,_prologue.jpg)*
+*[Obverse and reverse of a 1874 South African one-pound coin](https://wikipedia.org/wiki/File:South_Africa_1874_One_Pond.jpg)*
