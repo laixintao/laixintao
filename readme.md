@@ -1,4 +1,4 @@
 
-![Obverse and reverse of a 1874 South African one-pound coin](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/South_Africa_1874_One_Pond.jpg/600px-South_Africa_1874_One_Pond.jpg)
+![Field goal](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Connor_Barth_attempts_field_goal_8_November_2015_151108-F-ID984-017.jpg/600px-Connor_Barth_attempts_field_goal_8_November_2015_151108-F-ID984-017.jpg)
 
-*[Obverse and reverse of a 1874 South African one-pound coin](https://wikipedia.org/wiki/File:South_Africa_1874_One_Pond.jpg)*
+*[Field goal](https://wikipedia.org/wiki/File:Connor_Barth_attempts_field_goal_8_November_2015_151108-F-ID984-017.jpg)*
