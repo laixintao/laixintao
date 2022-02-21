@@ -1,4 +1,4 @@
 
-![Django Reinhardt](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/Django_Reinhardt_%28Gottlieb_07301%29.jpg/525px-Django_Reinhardt_%28Gottlieb_07301%29.jpg)
+![Indus River](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Indus_Valley_near_Leh.jpg/1200px-Indus_Valley_near_Leh.jpg)
 
-*[Django Reinhardt](https://wikipedia.org/wiki/File:Django_Reinhardt_(Gottlieb_07301).jpg)*
+*[Indus River](https://wikipedia.org/wiki/File:Indus_Valley_near_Leh.jpg)*
