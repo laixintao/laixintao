@@ -1,4 +1,4 @@
 
-![The Birth of the Milky Way](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Peter_Paul_Rubens_-_The_Birth_of_the_Milky_Way%2C_1636-1637.jpg/593px-Peter_Paul_Rubens_-_The_Birth_of_the_Milky_Way%2C_1636-1637.jpg)
+![Severe acute respiratory syndrome coronavirus 2](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/SARS-CoV-2_scanning_electron_microscope_image.jpg/600px-SARS-CoV-2_scanning_electron_microscope_image.jpg)
 
-*[The Birth of the Milky Way](https://wikipedia.org/wiki/File:Peter_Paul_Rubens_-_The_Birth_of_the_Milky_Way,_1636-1637.jpg)*
+*[Severe acute respiratory syndrome coronavirus 2](https://wikipedia.org/wiki/File:SARS-CoV-2_scanning_electron_microscope_image.jpg)*
