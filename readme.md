@@ -1,4 +1,4 @@
 
-![Severe acute respiratory syndrome coronavirus 2](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/SARS-CoV-2_scanning_electron_microscope_image.jpg/600px-SARS-CoV-2_scanning_electron_microscope_image.jpg)
+![Interior of Duke Humfrey's Library](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Duke_Humfrey%27s_Library_Interior_5%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg/600px-Duke_Humfrey%27s_Library_Interior_5%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg)
 
-*[Severe acute respiratory syndrome coronavirus 2](https://wikipedia.org/wiki/File:SARS-CoV-2_scanning_electron_microscope_image.jpg)*
+*[Interior of Duke Humfrey's Library](https://wikipedia.org/wiki/File:Duke_Humfrey%27s_Library_Interior_5,_Bodleian_Library,_Oxford,_UK_-_Diliff.jpg)*
