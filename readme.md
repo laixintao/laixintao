@@ -1,4 +1,4 @@
 
-![Phyllidia elegans](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c0/Phyllidia_elegans_%2823806633304%29.jpg/525px-Phyllidia_elegans_%2823806633304%29.jpg)
+![Elliot See](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Gemini_5_Elliot_See_water_egress_training.jpg/525px-Gemini_5_Elliot_See_water_egress_training.jpg)
 
-*[Phyllidia elegans](https://wikipedia.org/wiki/File:Phyllidia_elegans_(23806633304).jpg)*
+*[Elliot See](https://wikipedia.org/wiki/File:Gemini_5_Elliot_See_water_egress_training.jpg)*
