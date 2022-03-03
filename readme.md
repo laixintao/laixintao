@@ -1,4 +1,4 @@
 
-![Blackness Castle](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/NEWScotland-2016-Aerial-Blackness_Castle_01.jpg/600px-NEWScotland-2016-Aerial-Blackness_Castle_01.jpg)
+![Use the scrollbar to see the full image.](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Sesshu_-_Haboku-Sansui_-_complete.jpg/450px-Sesshu_-_Haboku-Sansui_-_complete.jpg)
 
-*[Blackness Castle](https://wikipedia.org/wiki/File:NEWScotland-2016-Aerial-Blackness_Castle_01.jpg)*
+*[Use the scrollbar to see the full image.](https://wikipedia.org/wiki/File:Sesshu_-_Haboku-Sansui_-_complete.jpg)*
