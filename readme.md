@@ -1,4 +1,4 @@
 
-![Use the scrollbar to see the full image.](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Sesshu_-_Haboku-Sansui_-_complete.jpg/450px-Sesshu_-_Haboku-Sansui_-_complete.jpg)
+![Scarlet dragonfly](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Scarlet_darter_%28Crocothemis_erythraea%29_female_Bulgaria.jpg/600px-Scarlet_darter_%28Crocothemis_erythraea%29_female_Bulgaria.jpg)
 
-*[Use the scrollbar to see the full image.](https://wikipedia.org/wiki/File:Sesshu_-_Haboku-Sansui_-_complete.jpg)*
+*[Scarlet dragonfly](https://wikipedia.org/wiki/File:Scarlet_darter_(Crocothemis_erythraea)_female_Bulgaria.jpg)*
