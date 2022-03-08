@@ -1,4 +1,4 @@
 
-![Double-barred finch](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/Taeniopygia_bichenovii_2_-_Glen_Davis.jpg/525px-Taeniopygia_bichenovii_2_-_Glen_Davis.jpg)
+![Hudson Yards](https://upload.wikimedia.org/wikipedia/commons/thumb/5/56/Hudson_Yards_from_Hudson_Commons_%2895131p%29.jpg/599px-Hudson_Yards_from_Hudson_Commons_%2895131p%29.jpg)
 
-*[Double-barred finch](https://wikipedia.org/wiki/File:Taeniopygia_bichenovii_2_-_Glen_Davis.jpg)*
+*[Hudson Yards](https://wikipedia.org/wiki/File:Hudson_Yards_from_Hudson_Commons_(95131p).jpg)*
