@@ -1,4 +1,4 @@
 
-![Rufous-collared sparrow](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/Rufous-collared_sparrow_%28Zonotrichia_capensis_costaricensis%29_2.jpg/600px-Rufous-collared_sparrow_%28Zonotrichia_capensis_costaricensis%29_2.jpg)
+![Fugger family](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c1/German_States_Fugger_1621_10_Ducats.jpg/600px-German_States_Fugger_1621_10_Ducats.jpg)
 
-*[Rufous-collared sparrow](https://wikipedia.org/wiki/File:Rufous-collared_sparrow_(Zonotrichia_capensis_costaricensis)_2.jpg)*
+*[Fugger family](https://wikipedia.org/wiki/File:German_States_Fugger_1621_10_Ducats.jpg)*
