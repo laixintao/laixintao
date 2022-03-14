@@ -1,4 +1,4 @@
 
-![Fugger family](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c1/German_States_Fugger_1621_10_Ducats.jpg/600px-German_States_Fugger_1621_10_Ducats.jpg)
+![Iris Calderhead](https://upload.wikimedia.org/wikipedia/commons/thumb/4/40/Iris_Calderhead.jpg/450px-Iris_Calderhead.jpg)
 
-*[Fugger family](https://wikipedia.org/wiki/File:German_States_Fugger_1621_10_Ducats.jpg)*
+*[Iris Calderhead](https://wikipedia.org/wiki/File:Iris_Calderhead.jpg)*
