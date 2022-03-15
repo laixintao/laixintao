@@ -1,4 +1,4 @@
 
-![Iris Calderhead](https://upload.wikimedia.org/wikipedia/commons/thumb/4/40/Iris_Calderhead.jpg/450px-Iris_Calderhead.jpg)
+![Haliotis clathrata](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Haliotis_clathrata_01.JPG/600px-Haliotis_clathrata_01.JPG)
 
-*[Iris Calderhead](https://wikipedia.org/wiki/File:Iris_Calderhead.jpg)*
+*[Haliotis clathrata](https://wikipedia.org/wiki/File:Haliotis_clathrata_01.JPG)*
