@@ -1,4 +1,4 @@
 
-![Haliotis clathrata](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Haliotis_clathrata_01.JPG/600px-Haliotis_clathrata_01.JPG)
+![Gateway Generating Station](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/Gateway_Generating_Station_rectified.jpg/900px-Gateway_Generating_Station_rectified.jpg)
 
-*[Haliotis clathrata](https://wikipedia.org/wiki/File:Haliotis_clathrata_01.JPG)*
+*[Gateway Generating Station](https://wikipedia.org/wiki/File:Gateway_Generating_Station_rectified.jpg)*
