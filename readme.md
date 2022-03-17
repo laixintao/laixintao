@@ -1,4 +1,4 @@
 
-![Gateway Generating Station](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/Gateway_Generating_Station_rectified.jpg/900px-Gateway_Generating_Station_rectified.jpg)
+![Ginevra de' Benci](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Leonardo_da_Vinci_-_Ginevra_de%27_Benci_-_Google_Art_Project.jpg/525px-Leonardo_da_Vinci_-_Ginevra_de%27_Benci_-_Google_Art_Project.jpg)
 
-*[Gateway Generating Station](https://wikipedia.org/wiki/File:Gateway_Generating_Station_rectified.jpg)*
+*[Ginevra de' Benci](https://wikipedia.org/wiki/File:Leonardo_da_Vinci_-_Ginevra_de%27_Benci_-_Google_Art_Project.jpg)*
