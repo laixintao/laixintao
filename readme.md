@@ -1,4 +1,4 @@
 
-![Ginevra de' Benci](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Leonardo_da_Vinci_-_Ginevra_de%27_Benci_-_Google_Art_Project.jpg/525px-Leonardo_da_Vinci_-_Ginevra_de%27_Benci_-_Google_Art_Project.jpg)
+![Brown quail](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9e/Coturnix_ypsilophora_-_Sydney_Olympic_Park.jpg/525px-Coturnix_ypsilophora_-_Sydney_Olympic_Park.jpg)
 
-*[Ginevra de' Benci](https://wikipedia.org/wiki/File:Leonardo_da_Vinci_-_Ginevra_de%27_Benci_-_Google_Art_Project.jpg)*
+*[Brown quail](https://wikipedia.org/wiki/File:Coturnix_ypsilophora_-_Sydney_Olympic_Park.jpg)*
