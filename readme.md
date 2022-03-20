@@ -1,4 +1,4 @@
 
-![People covered in coloured powder celebrating Holi](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Barsana_Holi_Festival.jpg/600px-Barsana_Holi_Festival.jpg)
+![Saint Joseph](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Guido_Reni_-_Saint_Joseph_and_the_Christ_Child_-_Google_Art_Project.jpg/525px-Guido_Reni_-_Saint_Joseph_and_the_Christ_Child_-_Google_Art_Project.jpg)
 
-*[People covered in coloured powder celebrating Holi](https://wikipedia.org/wiki/File:Barsana_Holi_Festival.jpg)*
+*[Saint Joseph](https://wikipedia.org/wiki/File:Guido_Reni_-_Saint_Joseph_and_the_Christ_Child_-_Google_Art_Project.jpg)*
