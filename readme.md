@@ -1,4 +1,4 @@
 
-![Saint Joseph](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Guido_Reni_-_Saint_Joseph_and_the_Christ_Child_-_Google_Art_Project.jpg/525px-Guido_Reni_-_Saint_Joseph_and_the_Christ_Child_-_Google_Art_Project.jpg)
+![Kurds celebrating Newroz](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Nowruz_2017_in_Bisaran%2C_Kurdistan_province.jpg/750px-Nowruz_2017_in_Bisaran%2C_Kurdistan_province.jpg)
 
-*[Saint Joseph](https://wikipedia.org/wiki/File:Guido_Reni_-_Saint_Joseph_and_the_Christ_Child_-_Google_Art_Project.jpg)*
+*[Kurds celebrating Newroz](https://wikipedia.org/wiki/File:Nowruz_2017_in_Bisaran,_Kurdistan_province.jpg)*
