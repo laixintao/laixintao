@@ -1,4 +1,4 @@
 
-![Gemsbok](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Gemsbok_%28Oryx_gazella%29_male.jpg/600px-Gemsbok_%28Oryx_gazella%29_male.jpg)
+![Rye](https://upload.wikimedia.org/wikipedia/commons/thumb/e/eb/Ivan_Shishkin_-_%D0%A0%D0%BE%D0%B6%D1%8C_-_Google_Art_Project.jpg/599px-Ivan_Shishkin_-_%D0%A0%D0%BE%D0%B6%D1%8C_-_Google_Art_Project.jpg)
 
-*[Gemsbok](https://wikipedia.org/wiki/File:Gemsbok_(Oryx_gazella)_male.jpg)*
+*[Rye](https://wikipedia.org/wiki/File:Ivan_Shishkin_-_%D0%A0%D0%BE%D0%B6%D1%8C_-_Google_Art_Project.jpg)*
