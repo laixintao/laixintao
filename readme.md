@@ -1,4 +1,4 @@
 
-![Palace of Fine Arts](https://upload.wikimedia.org/wikipedia/commons/thumb/1/16/Palace_of_Fine_Arts_%2816794p%29.jpg/750px-Palace_of_Fine_Arts_%2816794p%29.jpg)
+![Song thrush](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Turdus_philomelos_-_Western_Springs_Lakeside_Park.jpg/600px-Turdus_philomelos_-_Western_Springs_Lakeside_Park.jpg)
 
-*[Palace of Fine Arts](https://wikipedia.org/wiki/File:Palace_of_Fine_Arts_(16794p).jpg)*
+*[Song thrush](https://wikipedia.org/wiki/File:Turdus_philomelos_-_Western_Springs_Lakeside_Park.jpg)*
