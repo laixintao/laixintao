@@ -1,4 +1,4 @@
 
-![Wheat Fields](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Vincent_van_Gogh_-_Wheatfield_under_thunderclouds_-_Google_Art_Project.jpg/750px-Vincent_van_Gogh_-_Wheatfield_under_thunderclouds_-_Google_Art_Project.jpg)
+![Hayley McFarland](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/Hayley_McFarland_cropped.jpg/450px-Hayley_McFarland_cropped.jpg)
 
-*[Wheat Fields](https://wikipedia.org/wiki/File:Vincent_van_Gogh_-_Wheatfield_under_thunderclouds_-_Google_Art_Project.jpg)*
+*[Hayley McFarland](https://wikipedia.org/wiki/File:Hayley_McFarland_cropped.jpg)*
