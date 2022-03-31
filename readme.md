@@ -1,4 +1,4 @@
 
-![Hayley McFarland](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/Hayley_McFarland_cropped.jpg/450px-Hayley_McFarland_cropped.jpg)
+![Te Whanganui-A-Hei Marine Reserve](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Cathedral_Cove_06.jpg/525px-Cathedral_Cove_06.jpg)
 
-*[Hayley McFarland](https://wikipedia.org/wiki/File:Hayley_McFarland_cropped.jpg)*
+*[Te Whanganui-A-Hei Marine Reserve](https://wikipedia.org/wiki/File:Cathedral_Cove_06.jpg)*
