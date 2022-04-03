@@ -1,4 +1,4 @@
 
-![Ha-ha](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Scotland-2016-West_Lothian-Hopetoun_House_02.jpg/750px-Scotland-2016-West_Lothian-Hopetoun_House_02.jpg)
+![Collage of nine types of sand](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6e/00065_sand_collage.jpg/600px-00065_sand_collage.jpg)
 
-*[Ha-ha](https://wikipedia.org/wiki/File:Scotland-2016-West_Lothian-Hopetoun_House_02.jpg)*
+*[Collage of nine types of sand](https://wikipedia.org/wiki/File:00065_sand_collage.jpg)*
