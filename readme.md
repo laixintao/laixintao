@@ -1,4 +1,4 @@
 
-![Hygrocybe miniata](https://upload.wikimedia.org/wikipedia/commons/thumb/9/91/Hygrocybe_miniata_-_Ferndale_Park.jpg/525px-Hygrocybe_miniata_-_Ferndale_Park.jpg)
+![Colombo National Museum](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/SL_Colombo_asv2020-01_img10_National_Museum.jpg/600px-SL_Colombo_asv2020-01_img10_National_Museum.jpg)
 
-*[Hygrocybe miniata](https://wikipedia.org/wiki/File:Hygrocybe_miniata_-_Ferndale_Park.jpg)*
+*[Colombo National Museum](https://wikipedia.org/wiki/File:SL_Colombo_asv2020-01_img10_National_Museum.jpg)*
