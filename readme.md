@@ -1,4 +1,4 @@
 
-![California sea lion](https://upload.wikimedia.org/wikipedia/commons/thumb/7/74/California_sea_lion_in_La_Jolla_%2870568%29.jpg/525px-California_sea_lion_in_La_Jolla_%2870568%29.jpg)
+![Oedipus and the Sphinx](https://upload.wikimedia.org/wikipedia/commons/thumb/8/85/Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg/450px-Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg)
 
-*[California sea lion](https://wikipedia.org/wiki/File:California_sea_lion_in_La_Jolla_(70568).jpg)*
+*[Oedipus and the Sphinx](https://wikipedia.org/wiki/File:Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg)*
