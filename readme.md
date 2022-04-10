@@ -1,4 +1,4 @@
 
-![Oedipus and the Sphinx](https://upload.wikimedia.org/wikipedia/commons/thumb/8/85/Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg/450px-Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg)
+![Pigeon Point Lighthouse](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/Pigeon_Point_Lighthouse_%282016%29.jpg/600px-Pigeon_Point_Lighthouse_%282016%29.jpg)
 
-*[Oedipus and the Sphinx](https://wikipedia.org/wiki/File:Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg)*
+*[Pigeon Point Lighthouse](https://wikipedia.org/wiki/File:Pigeon_Point_Lighthouse_(2016).jpg)*
