@@ -1,4 +1,4 @@
 
-![Pigeon Point Lighthouse](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/Pigeon_Point_Lighthouse_%282016%29.jpg/600px-Pigeon_Point_Lighthouse_%282016%29.jpg)
+![Hubertine Auclert](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6b/Hubertine_Auclert_1910.jpg/525px-Hubertine_Auclert_1910.jpg)
 
-*[Pigeon Point Lighthouse](https://wikipedia.org/wiki/File:Pigeon_Point_Lighthouse_(2016).jpg)*
+*[Hubertine Auclert](https://wikipedia.org/wiki/File:Hubertine_Auclert_1910.jpg)*
