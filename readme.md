@@ -1,4 +1,4 @@
 
-![Hubertine Auclert](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6b/Hubertine_Auclert_1910.jpg/525px-Hubertine_Auclert_1910.jpg)
+![Northern lapwing](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2f/Northern-Lapwing-Vanellus-vanellus.jpg/600px-Northern-Lapwing-Vanellus-vanellus.jpg)
 
-*[Hubertine Auclert](https://wikipedia.org/wiki/File:Hubertine_Auclert_1910.jpg)*
+*[Northern lapwing](https://wikipedia.org/wiki/File:Northern-Lapwing-Vanellus-vanellus.jpg)*
