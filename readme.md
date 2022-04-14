@@ -1,4 +1,4 @@
 
-![Obverse and reverse of a Romanian 10-bani banknote](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/ROM-69-Emergency_WWI-10_Bani_%281917%29.jpg/600px-ROM-69-Emergency_WWI-10_Bani_%281917%29.jpg)
+![Denis Mukwege](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Denis_Mukwege_par_Claude_Truong-Ngoc_novembre_2014.jpg/450px-Denis_Mukwege_par_Claude_Truong-Ngoc_novembre_2014.jpg)
 
-*[Obverse and reverse of a Romanian 10-bani banknote](https://wikipedia.org/wiki/File:ROM-69-Emergency_WWI-10_Bani_(1917).jpg)*
+*[Denis Mukwege](https://wikipedia.org/wiki/File:Denis_Mukwege_par_Claude_Truong-Ngoc_novembre_2014.jpg)*
