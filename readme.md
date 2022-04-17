@@ -1,4 +1,4 @@
 
-![Christ Falling on the Way to Calvary](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cb/Christ_Falling_on_the_Way_to_Calvary_-_Raphael.jpg/525px-Christ_Falling_on_the_Way_to_Calvary_-_Raphael.jpg)
+![Richèl Hogenkamp](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Rich%C3%A8l_Hogenkamp_-_Masters_de_Madrid_2015_-_11.jpg/600px-Rich%C3%A8l_Hogenkamp_-_Masters_de_Madrid_2015_-_11.jpg)
 
-*[Christ Falling on the Way to Calvary](https://wikipedia.org/wiki/File:Christ_Falling_on_the_Way_to_Calvary_-_Raphael.jpg)*
+*[Richèl Hogenkamp](https://wikipedia.org/wiki/File:Rich%C3%A8l_Hogenkamp_-_Masters_de_Madrid_2015_-_11.jpg)*
