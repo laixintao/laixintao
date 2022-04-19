@@ -1,4 +1,4 @@
 
-![Talamanca hummingbird](https://upload.wikimedia.org/wikipedia/commons/thumb/7/73/Talamanca_hummingbird_%28Eugenes_spectabilis%29_male.jpg/525px-Talamanca_hummingbird_%28Eugenes_spectabilis%29_male.jpg)
+![1906 San Francisco earthquake](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0d/Post-and-Grant-Avenue-Look.jpg/600px-Post-and-Grant-Avenue-Look.jpg)
 
-*[Talamanca hummingbird](https://wikipedia.org/wiki/File:Talamanca_hummingbird_(Eugenes_spectabilis)_male.jpg)*
+*[1906 San Francisco earthquake](https://wikipedia.org/wiki/File:Post-and-Grant-Avenue-Look.jpg)*
