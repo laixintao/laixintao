@@ -1,4 +1,4 @@
 
-![1906 San Francisco earthquake](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0d/Post-and-Grant-Avenue-Look.jpg/600px-Post-and-Grant-Avenue-Look.jpg)
+![Glenn T. Seaborg](https://upload.wikimedia.org/wikipedia/commons/thumb/4/49/Seaborg_in_lab_-_restoration.jpg/525px-Seaborg_in_lab_-_restoration.jpg)
 
-*[1906 San Francisco earthquake](https://wikipedia.org/wiki/File:Post-and-Grant-Avenue-Look.jpg)*
+*[Glenn T. Seaborg](https://wikipedia.org/wiki/File:Seaborg_in_lab_-_restoration.jpg)*
