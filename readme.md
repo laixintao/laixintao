@@ -1,4 +1,4 @@
 
-![Serbian Easter breakfast](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/Easter_breakfast_in_Serbia_%28close-up%29.jpg/600px-Easter_breakfast_in_Serbia_%28close-up%29.jpg)
+![St Lawrence Jewry](https://upload.wikimedia.org/wikipedia/commons/thumb/8/89/St_Lawrence_Jewry%2C_City_of_London%2C_UK_-_Diliff.jpg/600px-St_Lawrence_Jewry%2C_City_of_London%2C_UK_-_Diliff.jpg)
 
-*[Serbian Easter breakfast](https://wikipedia.org/wiki/File:Easter_breakfast_in_Serbia_(close-up).jpg)*
+*[St Lawrence Jewry](https://wikipedia.org/wiki/File:St_Lawrence_Jewry,_City_of_London,_UK_-_Diliff.jpg)*
