@@ -1,4 +1,4 @@
 
-![St Lawrence Jewry](https://upload.wikimedia.org/wikipedia/commons/thumb/8/89/St_Lawrence_Jewry%2C_City_of_London%2C_UK_-_Diliff.jpg/600px-St_Lawrence_Jewry%2C_City_of_London%2C_UK_-_Diliff.jpg)
+![Warbling white-eye](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Japanese_white-eye_at_Tenn%C5%8Dji_Park_in_Osaka%2C_January_2016_III.jpg/600px-Japanese_white-eye_at_Tenn%C5%8Dji_Park_in_Osaka%2C_January_2016_III.jpg)
 
-*[St Lawrence Jewry](https://wikipedia.org/wiki/File:St_Lawrence_Jewry,_City_of_London,_UK_-_Diliff.jpg)*
+*[Warbling white-eye](https://wikipedia.org/wiki/File:Japanese_white-eye_at_Tenn%C5%8Dji_Park_in_Osaka,_January_2016_III.jpg)*
