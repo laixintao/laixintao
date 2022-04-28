@@ -1,4 +1,4 @@
 
-![Warbling white-eye](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Japanese_white-eye_at_Tenn%C5%8Dji_Park_in_Osaka%2C_January_2016_III.jpg/600px-Japanese_white-eye_at_Tenn%C5%8Dji_Park_in_Osaka%2C_January_2016_III.jpg)
+![Collage of forty-two types of seed](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dc/%D0%A0%D0%B0%D0%B7%D0%BD%D0%BE%D0%BE%D0%B1%D1%80%D0%B0%D0%B7%D0%B8%D0%B5_%D1%81%D0%B5%D0%BC%D1%8F%D0%BD.jpg/600px-%D0%A0%D0%B0%D0%B7%D0%BD%D0%BE%D0%BE%D0%B1%D1%80%D0%B0%D0%B7%D0%B8%D0%B5_%D1%81%D0%B5%D0%BC%D1%8F%D0%BD.jpg)
 
-*[Warbling white-eye](https://wikipedia.org/wiki/File:Japanese_white-eye_at_Tenn%C5%8Dji_Park_in_Osaka,_January_2016_III.jpg)*
+*[Collage of forty-two types of seed](https://wikipedia.org/wiki/File:%D0%A0%D0%B0%D0%B7%D0%BD%D0%BE%D0%BE%D0%B1%D1%80%D0%B0%D0%B7%D0%B8%D0%B5_%D1%81%D0%B5%D0%BC%D1%8F%D0%BD.jpg)*
