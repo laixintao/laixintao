@@ -1,4 +1,4 @@
 
-![Calcite](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Fluorescence_in_calcite.jpg/525px-Fluorescence_in_calcite.jpg)
+![Charles S. Fairchild](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d0/FAIRCHILD%2C_Charles_S-Treasury_%28BEP_engraved_portrait%29.jpg/525px-FAIRCHILD%2C_Charles_S-Treasury_%28BEP_engraved_portrait%29.jpg)
 
-*[Calcite](https://wikipedia.org/wiki/File:Fluorescence_in_calcite.jpg)*
+*[Charles S. Fairchild](https://wikipedia.org/wiki/File:FAIRCHILD,_Charles_S-Treasury_(BEP_engraved_portrait).jpg)*
