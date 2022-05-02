@@ -1,4 +1,4 @@
 
-![Charles S. Fairchild](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d0/FAIRCHILD%2C_Charles_S-Treasury_%28BEP_engraved_portrait%29.jpg/525px-FAIRCHILD%2C_Charles_S-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Naser al-Din Shah Qajar](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Naser_al-Din_Shah_Qajar%2C_close_up%2C_with_slight_smile_by_Nadar.jpg/525px-Naser_al-Din_Shah_Qajar%2C_close_up%2C_with_slight_smile_by_Nadar.jpg)
 
-*[Charles S. Fairchild](https://wikipedia.org/wiki/File:FAIRCHILD,_Charles_S-Treasury_(BEP_engraved_portrait).jpg)*
+*[Naser al-Din Shah Qajar](https://wikipedia.org/wiki/File:Naser_al-Din_Shah_Qajar,_close_up,_with_slight_smile_by_Nadar.jpg)*
