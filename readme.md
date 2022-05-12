@@ -1,4 +1,4 @@
 
-![Misumena vatia](https://upload.wikimedia.org/wikipedia/commons/thumb/e/eb/Crab_spider_%28Misumena_Vatia%29_with_prey_silver-spotted_skipper_%28Hesperia_comma%29.jpg/525px-Crab_spider_%28Misumena_Vatia%29_with_prey_silver-spotted_skipper_%28Hesperia_comma%29.jpg)
+![Hattie Wyatt Caraway](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg/525px-Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg)
 
-*[Misumena vatia](https://wikipedia.org/wiki/File:Crab_spider_(Misumena_Vatia)_with_prey_silver-spotted_skipper_(Hesperia_comma).jpg)*
+*[Hattie Wyatt Caraway](https://wikipedia.org/wiki/File:Hattie_Caraway_by_Harris_%26_Ewing,_1914.jpg)*
