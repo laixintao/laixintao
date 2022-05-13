@@ -1,4 +1,4 @@
 
-![Hattie Wyatt Caraway](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg/525px-Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg)
+![Obverse and reverse of a Venetian 50-zecchini coin](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Italian_States-Venice_%281779-89%29_50_Zecchini.jpg/750px-Italian_States-Venice_%281779-89%29_50_Zecchini.jpg)
 
-*[Hattie Wyatt Caraway](https://wikipedia.org/wiki/File:Hattie_Caraway_by_Harris_%26_Ewing,_1914.jpg)*
+*[Obverse and reverse of a Venetian 50-zecchini coin](https://wikipedia.org/wiki/File:Italian_States-Venice_(1779-89)_50_Zecchini.jpg)*
