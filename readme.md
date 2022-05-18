@@ -1,4 +1,4 @@
 
-![Government House, Baku](https://upload.wikimedia.org/wikipedia/en/thumb/e/ec/Gobierno_de_Azerbaiy%C3%A1n%2C_Baku%2C_Azerbaiy%C3%A1n%2C_2016-09-26%2C_DD_27.jpg/525px-Gobierno_de_Azerbaiy%C3%A1n%2C_Baku%2C_Azerbaiy%C3%A1n%2C_2016-09-26%2C_DD_27.jpg)
+![Altolamprologus compressiceps](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1c/Altolamprologus_compressiceps_-_Karlsruhe_Zoo_01.jpg/600px-Altolamprologus_compressiceps_-_Karlsruhe_Zoo_01.jpg)
 
-*[Government House, Baku](https://wikipedia.org/wiki/File:Gobierno_de_Azerbaiy%C3%A1n,_Baku,_Azerbaiy%C3%A1n,_2016-09-26,_DD_27.jpg)*
+*[Altolamprologus compressiceps](https://wikipedia.org/wiki/File:Altolamprologus_compressiceps_-_Karlsruhe_Zoo_01.jpg)*
