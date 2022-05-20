@@ -1,4 +1,4 @@
 
-![Caroline Spencer](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Dr._Caroline_Spencer_275029v.jpg/525px-Dr._Caroline_Spencer_275029v.jpg)
+![Supermarine Spitfire](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5b/Britain%27s_New_Spitfire_44-pf-116-2016-001-ac.jpg/525px-Britain%27s_New_Spitfire_44-pf-116-2016-001-ac.jpg)
 
-*[Caroline Spencer](https://wikipedia.org/wiki/File:Dr._Caroline_Spencer_275029v.jpg)*
+*[Supermarine Spitfire](https://wikipedia.org/wiki/File:Britain%27s_New_Spitfire_44-pf-116-2016-001-ac.jpg)*
