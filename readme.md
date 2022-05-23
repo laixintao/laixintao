@@ -1,4 +1,4 @@
 
-![Lucy Arbell](https://upload.wikimedia.org/wikipedia/commons/thumb/6/63/Lucy_Arbell_as_Queen_Amahelli_in_Massenet%27s_Bacchus%2C_wide_view.jpg/525px-Lucy_Arbell_as_Queen_Amahelli_in_Massenet%27s_Bacchus%2C_wide_view.jpg)
+![Topographic map of Mars](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Mars_topography_%28MOLA_dataset%29_with_poles_HiRes.jpg/1050px-Mars_topography_%28MOLA_dataset%29_with_poles_HiRes.jpg)
 
-*[Lucy Arbell](https://wikipedia.org/wiki/File:Lucy_Arbell_as_Queen_Amahelli_in_Massenet%27s_Bacchus,_wide_view.jpg)*
+*[Topographic map of Mars](https://wikipedia.org/wiki/File:Mars_topography_(MOLA_dataset)_with_poles_HiRes.jpg)*
