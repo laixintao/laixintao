@@ -1,4 +1,4 @@
 
-![Topographic map of Mars](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Mars_topography_%28MOLA_dataset%29_with_poles_HiRes.jpg/1050px-Mars_topography_%28MOLA_dataset%29_with_poles_HiRes.jpg)
+![Eastern spinebill](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fb/Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg/525px-Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg)
 
-*[Topographic map of Mars](https://wikipedia.org/wiki/File:Mars_topography_(MOLA_dataset)_with_poles_HiRes.jpg)*
+*[Eastern spinebill](https://wikipedia.org/wiki/File:Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg)*
