@@ -1,4 +1,4 @@
 
-![Eastern spinebill](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fb/Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg/525px-Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg)
+![Brigid Balfour](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Brigid_M._Balfour_%281914-1994%29_-_Restoration.jpg/450px-Brigid_M._Balfour_%281914-1994%29_-_Restoration.jpg)
 
-*[Eastern spinebill](https://wikipedia.org/wiki/File:Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg)*
+*[Brigid Balfour](https://wikipedia.org/wiki/File:Brigid_M._Balfour_(1914-1994)_-_Restoration.jpg)*
