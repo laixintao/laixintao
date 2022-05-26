@@ -1,4 +1,4 @@
 
-![Brigid Balfour](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Brigid_M._Balfour_%281914-1994%29_-_Restoration.jpg/450px-Brigid_M._Balfour_%281914-1994%29_-_Restoration.jpg)
+![Las Lajas Shrine](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d2/Santuario_de_Las_Lajas%2C_Ipiales%2C_Colombia%2C_2015-07-21%2C_DD_26-27_HDR.JPG/525px-Santuario_de_Las_Lajas%2C_Ipiales%2C_Colombia%2C_2015-07-21%2C_DD_26-27_HDR.JPG)
 
-*[Brigid Balfour](https://wikipedia.org/wiki/File:Brigid_M._Balfour_(1914-1994)_-_Restoration.jpg)*
+*[Las Lajas Shrine](https://wikipedia.org/wiki/File:Santuario_de_Las_Lajas,_Ipiales,_Colombia,_2015-07-21,_DD_26-27_HDR.JPG)*
