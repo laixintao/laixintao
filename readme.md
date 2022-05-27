@@ -1,4 +1,4 @@
 
-![Las Lajas Shrine](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d2/Santuario_de_Las_Lajas%2C_Ipiales%2C_Colombia%2C_2015-07-21%2C_DD_26-27_HDR.JPG/525px-Santuario_de_Las_Lajas%2C_Ipiales%2C_Colombia%2C_2015-07-21%2C_DD_26-27_HDR.JPG)
+![Floating market](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Jukung_Pasar_Terapung.jpg/600px-Jukung_Pasar_Terapung.jpg)
 
-*[Las Lajas Shrine](https://wikipedia.org/wiki/File:Santuario_de_Las_Lajas,_Ipiales,_Colombia,_2015-07-21,_DD_26-27_HDR.JPG)*
+*[Floating market](https://wikipedia.org/wiki/File:Jukung_Pasar_Terapung.jpg)*
