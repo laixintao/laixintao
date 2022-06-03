@@ -1,4 +1,4 @@
 
-![Desolation](https://upload.wikimedia.org/wikipedia/commons/thumb/7/77/Cole_Thomas_The_Course_of_Empire_Desolation_1836.jpg/750px-Cole_Thomas_The_Course_of_Empire_Desolation_1836.jpg)
+![White-plumed honeyeater](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fd/Ptilotula_penicillata_-_Glen_Davis.jpg/450px-Ptilotula_penicillata_-_Glen_Davis.jpg)
 
-*[Desolation](https://wikipedia.org/wiki/File:Cole_Thomas_The_Course_of_Empire_Desolation_1836.jpg)*
+*[White-plumed honeyeater](https://wikipedia.org/wiki/File:Ptilotula_penicillata_-_Glen_Davis.jpg)*
