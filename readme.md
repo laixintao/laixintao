@@ -1,4 +1,4 @@
 
-![Quo Vadis](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/Poster_for_Quo_Vadis_%281913_silent_film%29_-_Lygia_Bound_to_the_Wild_Bull.jpg/525px-Poster_for_Quo_Vadis_%281913_silent_film%29_-_Lygia_Bound_to_the_Wild_Bull.jpg)
+![Monument to Alfonso XII](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg/750px-Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg)
 
-*[Quo Vadis](https://wikipedia.org/wiki/File:Poster_for_Quo_Vadis_(1913_silent_film)_-_Lygia_Bound_to_the_Wild_Bull.jpg)*
+*[Monument to Alfonso XII](https://wikipedia.org/wiki/File:Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg)*
