@@ -1,4 +1,4 @@
 
-![Monument to Alfonso XII](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg/750px-Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg)
+![Robert Bruce](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b3/Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce%2C_Act_III%2C_Scene_3.jpg/750px-Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce%2C_Act_III%2C_Scene_3.jpg)
 
-*[Monument to Alfonso XII](https://wikipedia.org/wiki/File:Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg)*
+*[Robert Bruce](https://wikipedia.org/wiki/File:Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce,_Act_III,_Scene_3.jpg)*
