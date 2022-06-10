@@ -1,4 +1,4 @@
 
-![Robert Bruce](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b3/Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce%2C_Act_III%2C_Scene_3.jpg/750px-Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce%2C_Act_III%2C_Scene_3.jpg)
+![The Anatomy Lesson of Dr. Nicolaes Tulp](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg/600px-Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg)
 
-*[Robert Bruce](https://wikipedia.org/wiki/File:Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce,_Act_III,_Scene_3.jpg)*
+*[The Anatomy Lesson of Dr. Nicolaes Tulp](https://wikipedia.org/wiki/File:Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg)*
