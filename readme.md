@@ -1,4 +1,4 @@
 
-![The Anatomy Lesson of Dr. Nicolaes Tulp](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg/600px-Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg)
+![Sinopterus dongi](https://upload.wikimedia.org/wikipedia/commons/thumb/5/59/Sinopterus_dongi_NMNS.jpg/525px-Sinopterus_dongi_NMNS.jpg)
 
-*[The Anatomy Lesson of Dr. Nicolaes Tulp](https://wikipedia.org/wiki/File:Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg)*
+*[Sinopterus dongi](https://wikipedia.org/wiki/File:Sinopterus_dongi_NMNS.jpg)*
