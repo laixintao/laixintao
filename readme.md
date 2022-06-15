@@ -1,4 +1,4 @@
 
-![Danube Delta](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Danube_Delta_ESA23450088.jpeg/525px-Danube_Delta_ESA23450088.jpeg)
+![Checker shadow illusion](https://upload.wikimedia.org/wikipedia/commons/thumb/b/be/Checker_shadow_illusion.svg/525px-Checker_shadow_illusion.svg.png)
 
-*[Danube Delta](https://wikipedia.org/wiki/File:Danube_Delta_ESA23450088.jpeg)*
+*[Checker shadow illusion](https://wikipedia.org/wiki/File:Checker_shadow_illusion.svg)*
