@@ -1,4 +1,4 @@
 
-![Checker shadow illusion](https://upload.wikimedia.org/wikipedia/commons/thumb/b/be/Checker_shadow_illusion.svg/525px-Checker_shadow_illusion.svg.png)
+![Odd-eyed cat](https://upload.wikimedia.org/wikipedia/commons/thumb/6/69/June_odd-eyed-cat_cropped.jpg/600px-June_odd-eyed-cat_cropped.jpg)
 
-*[Checker shadow illusion](https://wikipedia.org/wiki/File:Checker_shadow_illusion.svg)*
+*[Odd-eyed cat](https://wikipedia.org/wiki/File:June_odd-eyed-cat_cropped.jpg)*
