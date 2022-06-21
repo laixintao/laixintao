@@ -1,4 +1,4 @@
 
-![The Hunting of the Snark](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2a/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_6.jpg/450px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_6.jpg)
+![Gina Krog](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/Portrett_av_Gina_Krog_%286276081582%29_-_Restoration.jpg/450px-Portrett_av_Gina_Krog_%286276081582%29_-_Restoration.jpg)
 
-*[The Hunting of the Snark](https://wikipedia.org/wiki/File:Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_6.jpg)*
+*[Gina Krog](https://wikipedia.org/wiki/File:Portrett_av_Gina_Krog_(6276081582)_-_Restoration.jpg)*
