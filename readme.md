@@ -1,4 +1,4 @@
 
-![Wells Cathedral arches under the tower](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Wells_Cathedral_Arches%2C_Somerset%2C_UK_-_Diliff.jpg/600px-Wells_Cathedral_Arches%2C_Somerset%2C_UK_-_Diliff.jpg)
+![Théophile Thoré-Bürger](https://upload.wikimedia.org/wikipedia/commons/thumb/6/66/Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg/450px-Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg)
 
-*[Wells Cathedral arches under the tower](https://wikipedia.org/wiki/File:Wells_Cathedral_Arches,_Somerset,_UK_-_Diliff.jpg)*
+*[Théophile Thoré-Bürger](https://wikipedia.org/wiki/File:Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg)*
