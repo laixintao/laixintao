@@ -1,4 +1,4 @@
 
-![Théophile Thoré-Bürger](https://upload.wikimedia.org/wikipedia/commons/thumb/6/66/Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg/450px-Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg)
+![Reaper](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg/600px-Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg)
 
-*[Théophile Thoré-Bürger](https://wikipedia.org/wiki/File:Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg)*
+*[Reaper](https://wikipedia.org/wiki/File:Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg)*
