@@ -1,4 +1,4 @@
 
-![Reaper](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg/600px-Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg)
+![Crystal Eastman](https://upload.wikimedia.org/wikipedia/commons/thumb/9/96/Mrs._Crystal_Eastman_Benedict_by_Edmonston%2C_Washington%2C_D.C..jpg/525px-Mrs._Crystal_Eastman_Benedict_by_Edmonston%2C_Washington%2C_D.C..jpg)
 
-*[Reaper](https://wikipedia.org/wiki/File:Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg)*
+*[Crystal Eastman](https://wikipedia.org/wiki/File:Mrs._Crystal_Eastman_Benedict_by_Edmonston,_Washington,_D.C..jpg)*
