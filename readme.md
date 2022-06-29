@@ -1,4 +1,4 @@
 
-![François Certain de Canrobert](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Mar%C3%A9chal_Canrobert_by_Nadar.jpg/450px-Mar%C3%A9chal_Canrobert_by_Nadar.jpg)
+![$1 Martha Washington](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/US-%241-SC-1891-Fr.223.jpg/305px-US-%241-SC-1891-Fr.223.jpg)
 
-*[François Certain de Canrobert](https://wikipedia.org/wiki/File:Mar%C3%A9chal_Canrobert_by_Nadar.jpg)*
+*[$1 Martha Washington](https://wikipedia.org/wiki/File:US-$1-SC-1891-Fr.223.jpg)*
