@@ -1,4 +1,4 @@
 
-![James A. Garfield](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/James_Abram_Garfield%2C_photo_portrait_seated.jpg/450px-James_Abram_Garfield%2C_photo_portrait_seated.jpg)
+![Cover of the vocal score of Les Troyens](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Hector_Berlioz%2C_Les_Troyens_vocal_score_cover_-_Restoration.jpg/525px-Hector_Berlioz%2C_Les_Troyens_vocal_score_cover_-_Restoration.jpg)
 
-*[James A. Garfield](https://wikipedia.org/wiki/File:James_Abram_Garfield,_photo_portrait_seated.jpg)*
+*[Cover of the vocal score of Les Troyens](https://wikipedia.org/wiki/File:Hector_Berlioz,_Les_Troyens_vocal_score_cover_-_Restoration.jpg)*
