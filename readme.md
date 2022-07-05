@@ -1,4 +1,4 @@
 
-![Cover of the vocal score of Les Troyens](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Hector_Berlioz%2C_Les_Troyens_vocal_score_cover_-_Restoration.jpg/525px-Hector_Berlioz%2C_Les_Troyens_vocal_score_cover_-_Restoration.jpg)
+![Images of immigrants painted onto windows at the ruined Ellis Island Immigrant Hospital](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Ellis_Island_hospital_window_mural_%2801897%29.jpg/750px-Ellis_Island_hospital_window_mural_%2801897%29.jpg)
 
-*[Cover of the vocal score of Les Troyens](https://wikipedia.org/wiki/File:Hector_Berlioz,_Les_Troyens_vocal_score_cover_-_Restoration.jpg)*
+*[Images of immigrants painted onto windows at the ruined Ellis Island Immigrant Hospital](https://wikipedia.org/wiki/File:Ellis_Island_hospital_window_mural_(01897).jpg)*
