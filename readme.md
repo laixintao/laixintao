@@ -1,4 +1,4 @@
 
-![Scintillant hummingbird](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Scintillant_hummingbird_%28Selasphorus_scintilla%29_female_in_flight_1.jpg/750px-Scintillant_hummingbird_%28Selasphorus_scintilla%29_female_in_flight_1.jpg)
+![Flora MacDonald Denison](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/Flora_MacDonald_Denison_-_Records_of_the_National_Woman%27s_Party.jpg/375px-Flora_MacDonald_Denison_-_Records_of_the_National_Woman%27s_Party.jpg)
 
-*[Scintillant hummingbird](https://wikipedia.org/wiki/File:Scintillant_hummingbird_(Selasphorus_scintilla)_female_in_flight_1.jpg)*
+*[Flora MacDonald Denison](https://wikipedia.org/wiki/File:Flora_MacDonald_Denison_-_Records_of_the_National_Woman%27s_Party.jpg)*
