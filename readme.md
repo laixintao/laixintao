@@ -1,4 +1,4 @@
 
-![Duke Humfrey's Library](https://upload.wikimedia.org/wikipedia/commons/thumb/5/57/Duke_Humfrey%27s_Library_Interior_2%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg/600px-Duke_Humfrey%27s_Library_Interior_2%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg)
+![St. Peter and Paul Cathedral, Brandenburg](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Dom_St._Peter_und_Paul_%28Brandenburg_an_der_Havel%29_01_%28MK%29.jpg/600px-Dom_St._Peter_und_Paul_%28Brandenburg_an_der_Havel%29_01_%28MK%29.jpg)
 
-*[Duke Humfrey's Library](https://wikipedia.org/wiki/File:Duke_Humfrey%27s_Library_Interior_2,_Bodleian_Library,_Oxford,_UK_-_Diliff.jpg)*
+*[St. Peter and Paul Cathedral, Brandenburg](https://wikipedia.org/wiki/File:Dom_St._Peter_und_Paul_(Brandenburg_an_der_Havel)_01_(MK).jpg)*
