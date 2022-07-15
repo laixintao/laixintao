@@ -1,4 +1,4 @@
 
-![Dorothy Houston Jacobson](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Dorothy_Houston_Jacobson_1967_-_Crop.jpg/600px-Dorothy_Houston_Jacobson_1967_-_Crop.jpg)
+![Red wattlebird](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Red_wattlebird.jpg/600px-Red_wattlebird.jpg)
 
-*[Dorothy Houston Jacobson](https://wikipedia.org/wiki/File:Dorothy_Houston_Jacobson_1967_-_Crop.jpg)*
+*[Red wattlebird](https://wikipedia.org/wiki/File:Red_wattlebird.jpg)*
