@@ -1,4 +1,4 @@
 
-![NASA space-flown Apollo medallion for the Apollo–Soyuz mission](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Apollo-Soyuz_Test_Project_Flown_Silver_Robbins_Medallion.jpg/750px-Apollo-Soyuz_Test_Project_Flown_Silver_Robbins_Medallion.jpg)
+![Joy Young Rogers](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/Joy_Young_Rogers_outside_the_White_House.jpg/675px-Joy_Young_Rogers_outside_the_White_House.jpg)
 
-*[NASA space-flown Apollo medallion for the Apollo–Soyuz mission](https://wikipedia.org/wiki/File:Apollo-Soyuz_Test_Project_Flown_Silver_Robbins_Medallion.jpg)*
+*[Joy Young Rogers](https://wikipedia.org/wiki/File:Joy_Young_Rogers_outside_the_White_House.jpg)*
