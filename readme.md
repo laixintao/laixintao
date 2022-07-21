@@ -1,4 +1,4 @@
 
-![The Hunting of the Snark](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_7.jpg/525px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_7.jpg)
+![Lillian Feickert](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a0/Lillian_Feickert_c._1912.jpg/525px-Lillian_Feickert_c._1912.jpg)
 
-*[The Hunting of the Snark](https://wikipedia.org/wiki/File:Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_7.jpg)*
+*[Lillian Feickert](https://wikipedia.org/wiki/File:Lillian_Feickert_c._1912.jpg)*
