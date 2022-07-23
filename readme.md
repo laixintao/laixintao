@@ -1,4 +1,4 @@
 
-![Buzz Aldrin](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dc/Buzz_Aldrin.jpg/525px-Buzz_Aldrin.jpg)
+![Stairs to the Chapter House in Wells Cathedral](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Wells_Cathedral_Stairs_to_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg/600px-Wells_Cathedral_Stairs_to_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg)
 
-*[Buzz Aldrin](https://wikipedia.org/wiki/File:Buzz_Aldrin.jpg)*
+*[Stairs to the Chapter House in Wells Cathedral](https://wikipedia.org/wiki/File:Wells_Cathedral_Stairs_to_Chapter_House,_Somerset,_UK_-_Diliff.jpg)*
