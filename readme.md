@@ -1,4 +1,4 @@
 
-![Stairs to the Chapter House in Wells Cathedral](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Wells_Cathedral_Stairs_to_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg/600px-Wells_Cathedral_Stairs_to_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg)
+![Obverse and reverse of an 1828 Argentine eight-escudo coin](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Argentina_1828_8_Escudos.jpg/750px-Argentina_1828_8_Escudos.jpg)
 
-*[Stairs to the Chapter House in Wells Cathedral](https://wikipedia.org/wiki/File:Wells_Cathedral_Stairs_to_Chapter_House,_Somerset,_UK_-_Diliff.jpg)*
+*[Obverse and reverse of an 1828 Argentine eight-escudo coin](https://wikipedia.org/wiki/File:Argentina_1828_8_Escudos.jpg)*
