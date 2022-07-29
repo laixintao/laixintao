@@ -1,4 +1,4 @@
 
-![Ice speedway](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/2018_FIM_Ice_Speedway_Gladiators_World_Championship_-_GP_7_Niedermaier-5563.jpg/600px-2018_FIM_Ice_Speedway_Gladiators_World_Championship_-_GP_7_Niedermaier-5563.jpg)
+![$1: Abraham Lincoln and Ulysses S. Grant](https://upload.wikimedia.org/wikipedia/commons/thumb/8/89/US-%241-SC-1899-Fr-226.jpg/453px-US-%241-SC-1899-Fr-226.jpg)
 
-*[Ice speedway](https://wikipedia.org/wiki/File:2018_FIM_Ice_Speedway_Gladiators_World_Championship_-_GP_7_Niedermaier-5563.jpg)*
+*[$1: Abraham Lincoln and Ulysses S. Grant](https://wikipedia.org/wiki/File:US-$1-SC-1899-Fr-226.jpg)*
