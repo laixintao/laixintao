@@ -1,4 +1,4 @@
 
-![$1: Abraham Lincoln and Ulysses S. Grant](https://upload.wikimedia.org/wikipedia/commons/thumb/8/89/US-%241-SC-1899-Fr-226.jpg/453px-US-%241-SC-1899-Fr-226.jpg)
+![Eastern yellow robin](https://upload.wikimedia.org/wikipedia/commons/thumb/4/45/Eopsaltria_australis_-_Mogo_Campground.jpg/675px-Eopsaltria_australis_-_Mogo_Campground.jpg)
 
-*[$1: Abraham Lincoln and Ulysses S. Grant](https://wikipedia.org/wiki/File:US-$1-SC-1899-Fr-226.jpg)*
+*[Eastern yellow robin](https://wikipedia.org/wiki/File:Eopsaltria_australis_-_Mogo_Campground.jpg)*
