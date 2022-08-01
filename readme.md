@@ -1,4 +1,4 @@
 
-![Emma Gillett](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Dean_Emma_M._Gillett_274015v.jpg/525px-Dean_Emma_M._Gillett_274015v.jpg)
+![Ada Flatman](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a9/Ada_S._Flatman%2C_c._1917.jpg/525px-Ada_S._Flatman%2C_c._1917.jpg)
 
-*[Emma Gillett](https://wikipedia.org/wiki/File:Dean_Emma_M._Gillett_274015v.jpg)*
+*[Ada Flatman](https://wikipedia.org/wiki/File:Ada_S._Flatman,_c._1917.jpg)*
