@@ -1,4 +1,4 @@
 
-![Ada Flatman](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a9/Ada_S._Flatman%2C_c._1917.jpg/525px-Ada_S._Flatman%2C_c._1917.jpg)
+![Painted buttonquail](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Turnix_varius_-_Castlereigh_nature_reserve.jpg/675px-Turnix_varius_-_Castlereigh_nature_reserve.jpg)
 
-*[Ada Flatman](https://wikipedia.org/wiki/File:Ada_S._Flatman,_c._1917.jpg)*
+*[Painted buttonquail](https://wikipedia.org/wiki/File:Turnix_varius_-_Castlereigh_nature_reserve.jpg)*
