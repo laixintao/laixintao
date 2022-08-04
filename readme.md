@@ -1,4 +1,4 @@
 
-![Louis Désiré Blanquart-Evrard](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Louis_D%C3%A9sir%C3%A9_Blanquart-Evrard_1869_photograph_BNF_Gallica.jpg/525px-Louis_D%C3%A9sir%C3%A9_Blanquart-Evrard_1869_photograph_BNF_Gallica.jpg)
+![Coat of arms of the Dakota Territory](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Dakota_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/600px-Dakota_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
 
-*[Louis Désiré Blanquart-Evrard](https://wikipedia.org/wiki/File:Louis_D%C3%A9sir%C3%A9_Blanquart-Evrard_1869_photograph_BNF_Gallica.jpg)*
+*[Coat of arms of the Dakota Territory](https://wikipedia.org/wiki/File:Dakota_territory_coat_of_arms_(illustrated,_1876).jpg)*
