@@ -1,4 +1,4 @@
 
-![Nell Mercer](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8e/Nell_Mercer_1910-20.jpg/450px-Nell_Mercer_1910-20.jpg)
+![Ortolan bunting](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Ortolan_bunting_in_Sierra_de_Guara%2C_Aragon%2C_Spain.jpg/750px-Ortolan_bunting_in_Sierra_de_Guara%2C_Aragon%2C_Spain.jpg)
 
-*[Nell Mercer](https://wikipedia.org/wiki/File:Nell_Mercer_1910-20.jpg)*
+*[Ortolan bunting](https://wikipedia.org/wiki/File:Ortolan_bunting_in_Sierra_de_Guara,_Aragon,_Spain.jpg)*
