@@ -1,4 +1,4 @@
 
-![Ortolan bunting](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Ortolan_bunting_in_Sierra_de_Guara%2C_Aragon%2C_Spain.jpg/750px-Ortolan_bunting_in_Sierra_de_Guara%2C_Aragon%2C_Spain.jpg)
+![Bengal tiger](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b0/Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg/675px-Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg)
 
-*[Ortolan bunting](https://wikipedia.org/wiki/File:Ortolan_bunting_in_Sierra_de_Guara,_Aragon,_Spain.jpg)*
+*[Bengal tiger](https://wikipedia.org/wiki/File:Bengal_tiger_(Panthera_tigris_tigris)_female_3_crop.jpg)*
