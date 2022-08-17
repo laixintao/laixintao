@@ -1,4 +1,4 @@
 
-![Bengal tiger](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b0/Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg/675px-Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg)
+![Double-barred finch](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/Taeniopygia_bichenovii_2_-_Glen_Davis.jpg/675px-Taeniopygia_bichenovii_2_-_Glen_Davis.jpg)
 
-*[Bengal tiger](https://wikipedia.org/wiki/File:Bengal_tiger_(Panthera_tigris_tigris)_female_3_crop.jpg)*
+*[Double-barred finch](https://wikipedia.org/wiki/File:Taeniopygia_bichenovii_2_-_Glen_Davis.jpg)*
