@@ -1,4 +1,4 @@
 
-![The Hunting of the Snark](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1c/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_10.jpg/450px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_10.jpg)
+![Jaguar](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Jaguar_%28Panthera_onca_palustris%29_male_Three_Brothers_River_2.jpg/675px-Jaguar_%28Panthera_onca_palustris%29_male_Three_Brothers_River_2.jpg)
 
-*[The Hunting of the Snark](https://wikipedia.org/wiki/File:Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_10.jpg)*
+*[Jaguar](https://wikipedia.org/wiki/File:Jaguar_(Panthera_onca_palustris)_male_Three_Brothers_River_2.jpg)*
