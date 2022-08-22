@@ -1,4 +1,4 @@
 
-![Jaguar](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Jaguar_%28Panthera_onca_palustris%29_male_Three_Brothers_River_2.jpg/675px-Jaguar_%28Panthera_onca_palustris%29_male_Three_Brothers_River_2.jpg)
+![Obverse and reverse of an 1836 Argentine eight-escudo coin](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Argentina_1836_8_Escudos.jpg/750px-Argentina_1836_8_Escudos.jpg)
 
-*[Jaguar](https://wikipedia.org/wiki/File:Jaguar_(Panthera_onca_palustris)_male_Three_Brothers_River_2.jpg)*
+*[Obverse and reverse of an 1836 Argentine eight-escudo coin](https://wikipedia.org/wiki/File:Argentina_1836_8_Escudos.jpg)*
