@@ -1,4 +1,4 @@
 
-![Obverse and reverse of an 1836 Argentine eight-escudo coin](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Argentina_1836_8_Escudos.jpg/750px-Argentina_1836_8_Escudos.jpg)
+![Organ of Wells Cathedral](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Wells_Cathedral_Organ%2C_Somerset%2C_UK_-_Diliff.jpg/600px-Wells_Cathedral_Organ%2C_Somerset%2C_UK_-_Diliff.jpg)
 
-*[Obverse and reverse of an 1836 Argentine eight-escudo coin](https://wikipedia.org/wiki/File:Argentina_1836_8_Escudos.jpg)*
+*[Organ of Wells Cathedral](https://wikipedia.org/wiki/File:Wells_Cathedral_Organ,_Somerset,_UK_-_Diliff.jpg)*
