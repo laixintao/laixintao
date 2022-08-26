@@ -1,4 +1,4 @@
 
-![Kobe Bryant](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Kobe_Bryant_7144_adjusted.jpg/450px-Kobe_Bryant_7144_adjusted.jpg)
+![Overview diagram of the citric acid cycle](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Citric_acid_cycle_with_aconitate_2.svg/825px-Citric_acid_cycle_with_aconitate_2.svg.png)
 
-*[Kobe Bryant](https://wikipedia.org/wiki/File:Kobe_Bryant_7144_adjusted.jpg)*
+*[Overview diagram of the citric acid cycle](https://wikipedia.org/wiki/File:Citric_acid_cycle_with_aconitate_2.svg)*
