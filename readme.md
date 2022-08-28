@@ -1,4 +1,4 @@
 
-![Overview diagram of the citric acid cycle](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Citric_acid_cycle_with_aconitate_2.svg/825px-Citric_acid_cycle_with_aconitate_2.svg.png)
+![Rhacophorus kio](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ce/Rhacophorus_kio.jpg/675px-Rhacophorus_kio.jpg)
 
-*[Overview diagram of the citric acid cycle](https://wikipedia.org/wiki/File:Citric_acid_cycle_with_aconitate_2.svg)*
+*[Rhacophorus kio](https://wikipedia.org/wiki/File:Rhacophorus_kio.jpg)*
