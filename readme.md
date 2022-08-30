@@ -1,4 +1,4 @@
 
-![Rhacophorus kio](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ce/Rhacophorus_kio.jpg/675px-Rhacophorus_kio.jpg)
+![Henrietta Rodman](https://upload.wikimedia.org/wikipedia/commons/thumb/3/33/Henrietta_Rodman_from_the_George_Grantham_Bain_Collection.jpg/750px-Henrietta_Rodman_from_the_George_Grantham_Bain_Collection.jpg)
 
-*[Rhacophorus kio](https://wikipedia.org/wiki/File:Rhacophorus_kio.jpg)*
+*[Henrietta Rodman](https://wikipedia.org/wiki/File:Henrietta_Rodman_from_the_George_Grantham_Bain_Collection.jpg)*
