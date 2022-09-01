@@ -1,4 +1,4 @@
 
-![Plate 5 of Ignace-Gaston Pardies's celestial atlas](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Ignace_Gaston_Pardies-Plate_5.jpg/750px-Ignace_Gaston_Pardies-Plate_5.jpg)
+![Coat of arms of Idaho Territory](https://upload.wikimedia.org/wikipedia/commons/thumb/3/35/Idaho_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-Idaho_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
 
-*[Plate 5 of Ignace-Gaston Pardies's celestial atlas](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_5.jpg)*
+*[Coat of arms of Idaho Territory](https://wikipedia.org/wiki/File:Idaho_territory_coat_of_arms_(illustrated,_1876).jpg)*
