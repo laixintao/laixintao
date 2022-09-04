@@ -1,4 +1,4 @@
 
-![Signing of the Japanese Instrument of Surrender in Tokyo Bay](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Mamoru_Shigemitsu_signs_the_Instrument_of_Surrender%2C_officially_ending_the_Second_World_War.jpg/600px-Mamoru_Shigemitsu_signs_the_Instrument_of_Surrender%2C_officially_ending_the_Second_World_War.jpg)
+![Historical coat of arms of the District of Columbia](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/District_of_Columbia_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-District_of_Columbia_coat_of_arms_%28illustrated%2C_1876%29.jpg)
 
-*[Signing of the Japanese Instrument of Surrender in Tokyo Bay](https://wikipedia.org/wiki/File:Mamoru_Shigemitsu_signs_the_Instrument_of_Surrender,_officially_ending_the_Second_World_War.jpg)*
+*[Historical coat of arms of the District of Columbia](https://wikipedia.org/wiki/File:District_of_Columbia_coat_of_arms_(illustrated,_1876).jpg)*
