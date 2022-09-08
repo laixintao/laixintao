@@ -1,4 +1,4 @@
 
-![Trundholm sun chariot](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Solvognen-00100.jpg/525px-Solvognen-00100.jpg)
+![Red-and-green macaw](https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Red-and-green_macaw_%28Ara_chloropterus%29_juvenile.JPG/525px-Red-and-green_macaw_%28Ara_chloropterus%29_juvenile.JPG)
 
-*[Trundholm sun chariot](https://wikipedia.org/wiki/File:Solvognen-00100.jpg)*
+*[Red-and-green macaw](https://wikipedia.org/wiki/File:Red-and-green_macaw_(Ara_chloropterus)_juvenile.JPG)*
