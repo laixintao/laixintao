@@ -1,4 +1,4 @@
 
-![Red-and-green macaw](https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Red-and-green_macaw_%28Ara_chloropterus%29_juvenile.JPG/525px-Red-and-green_macaw_%28Ara_chloropterus%29_juvenile.JPG)
+![Daniele Hypólito](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/ESTADOS_UNIDOS_LEVAM_OURO_NA_GIN%C3%81STICA_FEMININA_POR_EQUIPES_DOS_JOGOS_OL%C3%8DMPICOS_RIO_2016_%2828849586476%29_%28cropped%29.jpg/600px-ESTADOS_UNIDOS_LEVAM_OURO_NA_GIN%C3%81STICA_FEMININA_POR_EQUIPES_DOS_JOGOS_OL%C3%8DMPICOS_RIO_2016_%2828849586476%29_%28cropped%29.jpg)
 
-*[Red-and-green macaw](https://wikipedia.org/wiki/File:Red-and-green_macaw_(Ara_chloropterus)_juvenile.JPG)*
+*[Daniele Hypólito](https://wikipedia.org/wiki/File:ESTADOS_UNIDOS_LEVAM_OURO_NA_GIN%C3%81STICA_FEMININA_POR_EQUIPES_DOS_JOGOS_OL%C3%8DMPICOS_RIO_2016_(28849586476)_(cropped).jpg)*
