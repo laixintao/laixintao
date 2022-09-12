@@ -1,4 +1,4 @@
 
-![Theloderma corticale](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/Theloderma_corticale_-_Karlsruhe_Zoo_01.jpg/600px-Theloderma_corticale_-_Karlsruhe_Zoo_01.jpg)
+![One World Trade Center](https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/Lower_Manhattan_from_Governors_Island_August_2017_panorama.jpg/825px-Lower_Manhattan_from_Governors_Island_August_2017_panorama.jpg)
 
-*[Theloderma corticale](https://wikipedia.org/wiki/File:Theloderma_corticale_-_Karlsruhe_Zoo_01.jpg)*
+*[One World Trade Center](https://wikipedia.org/wiki/File:Lower_Manhattan_from_Governors_Island_August_2017_panorama.jpg)*
