@@ -1,4 +1,4 @@
 
-![Spiny-cheeked honeyeater](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Spiny-cheeked_Honeyeater_3434_-_Patchewollock_Conservation_Reserve.jpg/600px-Spiny-cheeked_Honeyeater_3434_-_Patchewollock_Conservation_Reserve.jpg)
+![5 złotych](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/POL-A1a-Bilet_Skarbowy-5_Zlotych_%281794_First_Issue%29.jpg/243px-POL-A1a-Bilet_Skarbowy-5_Zlotych_%281794_First_Issue%29.jpg)
 
-*[Spiny-cheeked honeyeater](https://wikipedia.org/wiki/File:Spiny-cheeked_Honeyeater_3434_-_Patchewollock_Conservation_Reserve.jpg)*
+*[5 złotych](https://wikipedia.org/wiki/File:POL-A1a-Bilet_Skarbowy-5_Zlotych_(1794_First_Issue).jpg)*
