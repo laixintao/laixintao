@@ -1,4 +1,4 @@
 
-![Northern gannet](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f8/Northern_Gannet_with_nest_material.jpg/675px-Northern_Gannet_with_nest_material.jpg)
+![First page of the Codex Mendoza depicting the founding of Tenochtitlan](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/CodexMendoza01.jpg/525px-CodexMendoza01.jpg)
 
-*[Northern gannet](https://wikipedia.org/wiki/File:Northern_Gannet_with_nest_material.jpg)*
+*[First page of the Codex Mendoza depicting the founding of Tenochtitlan](https://wikipedia.org/wiki/File:CodexMendoza01.jpg)*
