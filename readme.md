@@ -1,4 +1,4 @@
 
-![First page of the Codex Mendoza depicting the founding of Tenochtitlan](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/CodexMendoza01.jpg/525px-CodexMendoza01.jpg)
+![Distinctive feature](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e6/IPA-euler-manners-features.svg/525px-IPA-euler-manners-features.svg.png)
 
-*[First page of the Codex Mendoza depicting the founding of Tenochtitlan](https://wikipedia.org/wiki/File:CodexMendoza01.jpg)*
+*[Distinctive feature](https://wikipedia.org/wiki/File:IPA-euler-manners-features.svg)*
