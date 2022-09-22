@@ -1,4 +1,4 @@
 
-![Lunch atop a Skyscraper](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/Lunch_atop_a_Skyscraper_-_Charles_Clyde_Ebbets.jpg/600px-Lunch_atop_a_Skyscraper_-_Charles_Clyde_Ebbets.jpg)
+![Pantala flavescens](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg/675px-Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg)
 
-*[Lunch atop a Skyscraper](https://wikipedia.org/wiki/File:Lunch_atop_a_Skyscraper_-_Charles_Clyde_Ebbets.jpg)*
+*[Pantala flavescens](https://wikipedia.org/wiki/File:Pantala_flavescens_(globe_skimmer)_in_flight,_side_view.jpg)*
