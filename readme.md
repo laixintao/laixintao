@@ -1,4 +1,4 @@
 
-![Pantala flavescens](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg/675px-Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg)
+![Lichfield Cathedral](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Lichfield_Cathedral_Choir_2%2C_Staffordshire%2C_UK_-_Diliff.jpg/675px-Lichfield_Cathedral_Choir_2%2C_Staffordshire%2C_UK_-_Diliff.jpg)
 
-*[Pantala flavescens](https://wikipedia.org/wiki/File:Pantala_flavescens_(globe_skimmer)_in_flight,_side_view.jpg)*
+*[Lichfield Cathedral](https://wikipedia.org/wiki/File:Lichfield_Cathedral_Choir_2,_Staffordshire,_UK_-_Diliff.jpg)*
