@@ -1,4 +1,4 @@
 
-![James Stewart](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e8/Annex_-_Stewart%2C_James_%28Call_Northside_777%29_01.jpg/450px-Annex_-_Stewart%2C_James_%28Call_Northside_777%29_01.jpg)
+![Nemateleotris magnifica](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Fire_dartfish_%28Nemateleotris_magnifica%29_%2843372442502%29.jpg/600px-Fire_dartfish_%28Nemateleotris_magnifica%29_%2843372442502%29.jpg)
 
-*[James Stewart](https://wikipedia.org/wiki/File:Annex_-_Stewart,_James_(Call_Northside_777)_01.jpg)*
+*[Nemateleotris magnifica](https://wikipedia.org/wiki/File:Fire_dartfish_(Nemateleotris_magnifica)_(43372442502).jpg)*
