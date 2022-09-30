@@ -1,4 +1,4 @@
 
-![$1 (original): First National Bank, Lebanon, Indiana](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b5/US-NBN-IL-Lebanon-2057-Orig-1-400-C.jpg/310px-US-NBN-IL-Lebanon-2057-Orig-1-400-C.jpg)
+![Jewess with Oranges](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg/525px-Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg)
 
-*[$1 (original): First National Bank, Lebanon, Indiana](https://wikipedia.org/wiki/File:US-NBN-IL-Lebanon-2057-Orig-1-400-C.jpg)*
+*[Jewess with Oranges](https://wikipedia.org/wiki/File:Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg)*
