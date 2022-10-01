@@ -1,4 +1,4 @@
 
-![Jewess with Oranges](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg/525px-Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg)
+![Plate 6 of Ignace-Gaston Pardies's celestial atlas](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Ignace_Gaston_Pardies-Plate_6.jpg/750px-Ignace_Gaston_Pardies-Plate_6.jpg)
 
-*[Jewess with Oranges](https://wikipedia.org/wiki/File:Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg)*
+*[Plate 6 of Ignace-Gaston Pardies's celestial atlas](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_6.jpg)*
