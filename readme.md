@@ -1,4 +1,4 @@
 
-![Plate 6 of Ignace-Gaston Pardies's celestial atlas](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Ignace_Gaston_Pardies-Plate_6.jpg/750px-Ignace_Gaston_Pardies-Plate_6.jpg)
+![Kourion](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1c/Episkopi_01-2017_img06_Kourion.jpg/675px-Episkopi_01-2017_img06_Kourion.jpg)
 
-*[Plate 6 of Ignace-Gaston Pardies's celestial atlas](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_6.jpg)*
+*[Kourion](https://wikipedia.org/wiki/File:Episkopi_01-2017_img06_Kourion.jpg)*
