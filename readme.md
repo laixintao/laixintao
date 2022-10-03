@@ -1,4 +1,4 @@
 
-![Kourion](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1c/Episkopi_01-2017_img06_Kourion.jpg/675px-Episkopi_01-2017_img06_Kourion.jpg)
+![Common kingfisher](https://upload.wikimedia.org/wikipedia/commons/thumb/5/58/Common_kingfisher_%28Alcedo_atthis_ispida%29_female.jpg/600px-Common_kingfisher_%28Alcedo_atthis_ispida%29_female.jpg)
 
-*[Kourion](https://wikipedia.org/wiki/File:Episkopi_01-2017_img06_Kourion.jpg)*
+*[Common kingfisher](https://wikipedia.org/wiki/File:Common_kingfisher_(Alcedo_atthis_ispida)_female.jpg)*
