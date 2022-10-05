@@ -1,4 +1,4 @@
 
-![La Navarraise](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Poster_for_Jules_Massenet%27s_La_Navarraise_with_Emma_Calv%C3%A9_in_the_r%C3%B4le_of_Anita.jpg/525px-Poster_for_Jules_Massenet%27s_La_Navarraise_with_Emma_Calv%C3%A9_in_the_r%C3%B4le_of_Anita.jpg)
+![Jean-François Millet](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Jean-Fran%C3%A7ois_Millet_by_Nadar%2C_Metropolitan_Museum_copy.jpg/450px-Jean-Fran%C3%A7ois_Millet_by_Nadar%2C_Metropolitan_Museum_copy.jpg)
 
-*[La Navarraise](https://wikipedia.org/wiki/File:Poster_for_Jules_Massenet%27s_La_Navarraise_with_Emma_Calv%C3%A9_in_the_r%C3%B4le_of_Anita.jpg)*
+*[Jean-François Millet](https://wikipedia.org/wiki/File:Jean-Fran%C3%A7ois_Millet_by_Nadar,_Metropolitan_Museum_copy.jpg)*
