@@ -1,4 +1,4 @@
 
-![Eva Le Gallienne](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a6/Eva_Le_Gallienne_%28mnwp.275003%2C_cropped_restoration%29.jpg/525px-Eva_Le_Gallienne_%28mnwp.275003%2C_cropped_restoration%29.jpg)
+![Komodo dragon](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Komodo_dragons_%28Varanus_komodoensis%29_fighting.jpg/750px-Komodo_dragons_%28Varanus_komodoensis%29_fighting.jpg)
 
-*[Eva Le Gallienne](https://wikipedia.org/wiki/File:Eva_Le_Gallienne_(mnwp.275003,_cropped_restoration).jpg)*
+*[Komodo dragon](https://wikipedia.org/wiki/File:Komodo_dragons_(Varanus_komodoensis)_fighting.jpg)*
