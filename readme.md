@@ -1,4 +1,4 @@
 
-![Komodo dragon](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Komodo_dragons_%28Varanus_komodoensis%29_fighting.jpg/750px-Komodo_dragons_%28Varanus_komodoensis%29_fighting.jpg)
+![Eastern bristlebird](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Eastern_Bristlebird_-_Penrith.jpg/675px-Eastern_Bristlebird_-_Penrith.jpg)
 
-*[Komodo dragon](https://wikipedia.org/wiki/File:Komodo_dragons_(Varanus_komodoensis)_fighting.jpg)*
+*[Eastern bristlebird](https://wikipedia.org/wiki/File:Eastern_Bristlebird_-_Penrith.jpg)*
