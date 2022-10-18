@@ -1,4 +1,4 @@
 
-![Black-and-white photograph of David Ben-Gurion sitting with his arm on a desk](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e8/David_Ben-Gurion_%28D597-087%29.jpg/450px-David_Ben-Gurion_%28D597-087%29.jpg)
+![Purple roller](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e4/Purple_roller_%28Coracias_naevius_mosambicus%29.jpg/450px-Purple_roller_%28Coracias_naevius_mosambicus%29.jpg)
 
-*[Black-and-white photograph of David Ben-Gurion sitting with his arm on a desk](https://wikipedia.org/wiki/File:David_Ben-Gurion_(D597-087).jpg)*
+*[Purple roller](https://wikipedia.org/wiki/File:Purple_roller_(Coracias_naevius_mosambicus).jpg)*
