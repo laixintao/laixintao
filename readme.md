@@ -1,4 +1,4 @@
 
-![Sociable weaver](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Sociable_weaver_%28Philetairus_socius%29.jpg/525px-Sociable_weaver_%28Philetairus_socius%29.jpg)
+![Arthur Kornberg](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Arthur_Kornberg_%2830828410210%29_-_restoration1.jpg/525px-Arthur_Kornberg_%2830828410210%29_-_restoration1.jpg)
 
-*[Sociable weaver](https://wikipedia.org/wiki/File:Sociable_weaver_(Philetairus_socius).jpg)*
+*[Arthur Kornberg](https://wikipedia.org/wiki/File:Arthur_Kornberg_(30828410210)_-_restoration1.jpg)*
