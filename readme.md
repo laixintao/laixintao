@@ -1,4 +1,4 @@
 
-![Buff-breasted paradise kingfisher](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Buff-breasted_Paradise-Kingfisher_-_Julatten.jpg/525px-Buff-breasted_Paradise-Kingfisher_-_Julatten.jpg)
+![United States Notes](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/US-%241-LT-1880-Fr-29.jpg/2px-US-%241-LT-1880-Fr-29.jpg)
 
-*[Buff-breasted paradise kingfisher](https://wikipedia.org/wiki/File:Buff-breasted_Paradise-Kingfisher_-_Julatten.jpg)*
+*[United States Notes](https://wikipedia.org/wiki/File:US-$1-LT-1880-Fr-29.jpg)*
