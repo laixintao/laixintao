@@ -1,4 +1,4 @@
 
-![United States Notes](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/US-%241-LT-1880-Fr-29.jpg/2px-US-%241-LT-1880-Fr-29.jpg)
+![Plexippus petersi](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/Plexippus_petersi_%28jumping_spider%29_on_a_human_finger_at_golden_hour.jpg/750px-Plexippus_petersi_%28jumping_spider%29_on_a_human_finger_at_golden_hour.jpg)
 
-*[United States Notes](https://wikipedia.org/wiki/File:US-$1-LT-1880-Fr-29.jpg)*
+*[Plexippus petersi](https://wikipedia.org/wiki/File:Plexippus_petersi_(jumping_spider)_on_a_human_finger_at_golden_hour.jpg)*
