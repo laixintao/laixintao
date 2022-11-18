@@ -1,4 +1,4 @@
 
-![Ariane](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Albert_Pierre-Ren%C3%A9_Maignan_-_Jules_Massenet_-_Ariane.jpg/525px-Albert_Pierre-Ren%C3%A9_Maignan_-_Jules_Massenet_-_Ariane.jpg)
+![Nina Simone](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Nina_Simone_1965_-_restoration1.jpg/525px-Nina_Simone_1965_-_restoration1.jpg)
 
-*[Ariane](https://wikipedia.org/wiki/File:Albert_Pierre-Ren%C3%A9_Maignan_-_Jules_Massenet_-_Ariane.jpg)*
+*[Nina Simone](https://wikipedia.org/wiki/File:Nina_Simone_1965_-_restoration1.jpg)*
