@@ -1,4 +1,4 @@
 
-![Eurasian coot](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Eurasian_coot_%28Fulica_atra%29_juvenile.jpg/675px-Eurasian_coot_%28Fulica_atra%29_juvenile.jpg)
+![Close-up of a newborn baby girl yawning while lying down](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/Yawning_Infant%2C_August_2018.jpg/600px-Yawning_Infant%2C_August_2018.jpg)
 
-*[Eurasian coot](https://wikipedia.org/wiki/File:Eurasian_coot_(Fulica_atra)_juvenile.jpg)*
+*[Close-up of a newborn baby girl yawning while lying down](https://wikipedia.org/wiki/File:Yawning_Infant,_August_2018.jpg)*
