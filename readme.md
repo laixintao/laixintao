@@ -1,4 +1,4 @@
 
-![Close-up of a newborn baby girl yawning while lying down](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/Yawning_Infant%2C_August_2018.jpg/600px-Yawning_Infant%2C_August_2018.jpg)
+![Laetiporus sulphureus](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Hortus_Haren_18-05-2019._%28actm.%29_03.jpg/675px-Hortus_Haren_18-05-2019._%28actm.%29_03.jpg)
 
-*[Close-up of a newborn baby girl yawning while lying down](https://wikipedia.org/wiki/File:Yawning_Infant,_August_2018.jpg)*
+*[Laetiporus sulphureus](https://wikipedia.org/wiki/File:Hortus_Haren_18-05-2019._(actm.)_03.jpg)*
