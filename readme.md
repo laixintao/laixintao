@@ -1,4 +1,4 @@
 
-![Saint Anne](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d2/Autor_nieznany%2C_%C5%9Bw._Anna_-_fragment_postaci._Malowid%C5%82o_%C5%9Bcienne.jpg/600px-Autor_nieznany%2C_%C5%9Bw._Anna_-_fragment_postaci._Malowid%C5%82o_%C5%9Bcienne.jpg)
+![Cephalanthus occidentalis](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Cephalanthus_occidentalis_occidentalis1.jpg/675px-Cephalanthus_occidentalis_occidentalis1.jpg)
 
-*[Saint Anne](https://wikipedia.org/wiki/File:Autor_nieznany,_%C5%9Bw._Anna_-_fragment_postaci._Malowid%C5%82o_%C5%9Bcienne.jpg)*
+*[Cephalanthus occidentalis](https://wikipedia.org/wiki/File:Cephalanthus_occidentalis_occidentalis1.jpg)*
