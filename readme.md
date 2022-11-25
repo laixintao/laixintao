@@ -1,4 +1,4 @@
 
-![Cephalanthus occidentalis](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Cephalanthus_occidentalis_occidentalis1.jpg/675px-Cephalanthus_occidentalis_occidentalis1.jpg)
+![Turkey](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Male_wild_turkey_%28Meleagris_gallopavo%29_strutting.jpg/525px-Male_wild_turkey_%28Meleagris_gallopavo%29_strutting.jpg)
 
-*[Cephalanthus occidentalis](https://wikipedia.org/wiki/File:Cephalanthus_occidentalis_occidentalis1.jpg)*
+*[Turkey](https://wikipedia.org/wiki/File:Male_wild_turkey_(Meleagris_gallopavo)_strutting.jpg)*
