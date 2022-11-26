@@ -1,4 +1,4 @@
 
-![Turkey](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Male_wild_turkey_%28Meleagris_gallopavo%29_strutting.jpg/525px-Male_wild_turkey_%28Meleagris_gallopavo%29_strutting.jpg)
+![Julie d'Aubigny](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg/450px-Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg)
 
-*[Turkey](https://wikipedia.org/wiki/File:Male_wild_turkey_(Meleagris_gallopavo)_strutting.jpg)*
+*[Julie d'Aubigny](https://wikipedia.org/wiki/File:Mademoiselle_Maupin_de_l%27Op%C3%A9ra_(Julie_d%27Aubigny).jpg)*
