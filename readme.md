@@ -1,4 +1,4 @@
 
-![Julie d'Aubigny](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg/450px-Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg)
+![Siege of Khartoum currency](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/SUD-S102a-Siege_of_Khartoum-5_Piastres_%281884%29.jpg/2px-SUD-S102a-Siege_of_Khartoum-5_Piastres_%281884%29.jpg)
 
-*[Julie d'Aubigny](https://wikipedia.org/wiki/File:Mademoiselle_Maupin_de_l%27Op%C3%A9ra_(Julie_d%27Aubigny).jpg)*
+*[Siege of Khartoum currency](https://wikipedia.org/wiki/File:SUD-S102a-Siege_of_Khartoum-5_Piastres_(1884).jpg)*
