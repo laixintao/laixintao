@@ -1,4 +1,4 @@
 
-![2 groschen](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/GER-COL-S-1451-Prussia-Siege_of_Kolberg-2_groschen-1807.jpg/323px-GER-COL-S-1451-Prussia-Siege_of_Kolberg-2_groschen-1807.jpg)
+![Red-bellied piranha](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Pygocentrus_nattereri_-_Karlsruhe_Zoo_01.jpg/675px-Pygocentrus_nattereri_-_Karlsruhe_Zoo_01.jpg)
 
-*[2 groschen](https://wikipedia.org/wiki/File:GER-COL-S-1451-Prussia-Siege_of_Kolberg-2_groschen-1807.jpg)*
+*[Red-bellied piranha](https://wikipedia.org/wiki/File:Pygocentrus_nattereri_-_Karlsruhe_Zoo_01.jpg)*
