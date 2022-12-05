@@ -1,4 +1,4 @@
 
-![Coat of arms of the New Mexico Territory](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/New_Mexico_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/525px-New_Mexico_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Hazel MacKaye](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/Hazel_MacKaye_and_dog_by_Harris_%26_Ewing.jpg/450px-Hazel_MacKaye_and_dog_by_Harris_%26_Ewing.jpg)
 
-*[Coat of arms of the New Mexico Territory](https://wikipedia.org/wiki/File:New_Mexico_territory_coat_of_arms_(illustrated,_1876).jpg)*
+*[Hazel MacKaye](https://wikipedia.org/wiki/File:Hazel_MacKaye_and_dog_by_Harris_%26_Ewing.jpg)*
