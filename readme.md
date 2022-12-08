@@ -1,4 +1,4 @@
 
-![Marabou stork](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Marabou_stork_%28Leptoptilos_crumenifer%29_head.jpg/750px-Marabou_stork_%28Leptoptilos_crumenifer%29_head.jpg)
+![A Let L-410 Turbolet plane flying low over treetops](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/LET_L-410NG_OK-NGA_ILA_Berlin_2016_09.jpg/750px-LET_L-410NG_OK-NGA_ILA_Berlin_2016_09.jpg)
 
-*[Marabou stork](https://wikipedia.org/wiki/File:Marabou_stork_(Leptoptilos_crumenifer)_head.jpg)*
+*[A Let L-410 Turbolet plane flying low over treetops](https://wikipedia.org/wiki/File:LET_L-410NG_OK-NGA_ILA_Berlin_2016_09.jpg)*
