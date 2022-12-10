@@ -1,4 +1,4 @@
 
-![Orpheus in the Underworld](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Atelier_Nadar_-_Fly_scene_from_Offenbach%27s_Orph%C3%A9e_aux_enfers_with_Jeanne_Granier_as_Eurydice_and_Eug%C3%A8ne_Vauthier_as_Jupiter%2C_1887_revival%2C_wide-angle_shot.jpg/750px-Atelier_Nadar_-_Fly_scene_from_Offenbach%27s_Orph%C3%A9e_aux_enfers_with_Jeanne_Granier_as_Eurydice_and_Eug%C3%A8ne_Vauthier_as_Jupiter%2C_1887_revival%2C_wide-angle_shot.jpg)
+![Painting depicting two nude men in combat in Hell, one biting the other's neck, being observed by Dante and Virgil](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2a/William_Bouguereau_-_Dante_and_Virgile_-_Google_Art_Project.jpg/450px-William_Bouguereau_-_Dante_and_Virgile_-_Google_Art_Project.jpg)
 
-*[Orpheus in the Underworld](https://wikipedia.org/wiki/File:Atelier_Nadar_-_Fly_scene_from_Offenbach%27s_Orph%C3%A9e_aux_enfers_with_Jeanne_Granier_as_Eurydice_and_Eug%C3%A8ne_Vauthier_as_Jupiter,_1887_revival,_wide-angle_shot.jpg)*
+*[Painting depicting two nude men in combat in Hell, one biting the other's neck, being observed by Dante and Virgil](https://wikipedia.org/wiki/File:William_Bouguereau_-_Dante_and_Virgile_-_Google_Art_Project.jpg)*
