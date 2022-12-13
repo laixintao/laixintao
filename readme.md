@@ -1,4 +1,4 @@
 
-![Mossy leaf-tailed gecko camouflaging itself on a branch](https://upload.wikimedia.org/wikipedia/commons/thumb/5/59/Mossy_leaf-tailed_gecko_%28Uroplatus_sikorae%29_Montagne_d%E2%80%99Ambre_2.jpg/525px-Mossy_leaf-tailed_gecko_%28Uroplatus_sikorae%29_Montagne_d%E2%80%99Ambre_2.jpg)
+![Sepia-toned picture of Elizabeth Glendower Evans wearing a large feathered hat](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/Elizabeth_Glendower_Evans_%28cropped%29.jpg/450px-Elizabeth_Glendower_Evans_%28cropped%29.jpg)
 
-*[Mossy leaf-tailed gecko camouflaging itself on a branch](https://wikipedia.org/wiki/File:Mossy_leaf-tailed_gecko_(Uroplatus_sikorae)_Montagne_d%E2%80%99Ambre_2.jpg)*
+*[Sepia-toned picture of Elizabeth Glendower Evans wearing a large feathered hat](https://wikipedia.org/wiki/File:Elizabeth_Glendower_Evans_(cropped).jpg)*
