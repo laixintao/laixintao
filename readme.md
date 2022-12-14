@@ -1,4 +1,4 @@
 
-![Sepia-toned picture of Elizabeth Glendower Evans wearing a large feathered hat](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/Elizabeth_Glendower_Evans_%28cropped%29.jpg/450px-Elizabeth_Glendower_Evans_%28cropped%29.jpg)
+![Side view of Książ Castle, located on a forested slope](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Ksiaz_-_zamek_01.jpg/675px-Ksiaz_-_zamek_01.jpg)
 
-*[Sepia-toned picture of Elizabeth Glendower Evans wearing a large feathered hat](https://wikipedia.org/wiki/File:Elizabeth_Glendower_Evans_(cropped).jpg)*
+*[Side view of Książ Castle, located on a forested slope](https://wikipedia.org/wiki/File:Ksiaz_-_zamek_01.jpg)*
