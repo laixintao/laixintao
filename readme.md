@@ -1,4 +1,4 @@
 
-![Side view of Książ Castle, located on a forested slope](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Ksiaz_-_zamek_01.jpg/675px-Ksiaz_-_zamek_01.jpg)
+![Pittsburgh](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/Pittsburgh_skyline_panorama_at_night.jpg/1508px-Pittsburgh_skyline_panorama_at_night.jpg)
 
-*[Side view of Książ Castle, located on a forested slope](https://wikipedia.org/wiki/File:Ksiaz_-_zamek_01.jpg)*
+*[Pittsburgh](https://wikipedia.org/wiki/File:Pittsburgh_skyline_panorama_at_night.jpg)*
