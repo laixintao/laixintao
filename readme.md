@@ -1,4 +1,4 @@
 
-![Pittsburgh](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/Pittsburgh_skyline_panorama_at_night.jpg/1508px-Pittsburgh_skyline_panorama_at_night.jpg)
+![Beulah Ream Allen](https://upload.wikimedia.org/wikipedia/commons/thumb/4/47/Beulah_Ream_Allen_receiving_the_Medal_of_Freedom_%281945%29.jpg/525px-Beulah_Ream_Allen_receiving_the_Medal_of_Freedom_%281945%29.jpg)
 
-*[Pittsburgh](https://wikipedia.org/wiki/File:Pittsburgh_skyline_panorama_at_night.jpg)*
+*[Beulah Ream Allen](https://wikipedia.org/wiki/File:Beulah_Ream_Allen_receiving_the_Medal_of_Freedom_(1945).jpg)*
