@@ -1,4 +1,4 @@
 
-![Midvinterblot](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/Midvinterblot_%28Carl_Larsson%29_-_Nationalmuseum_-_edited.jpg/900px-Midvinterblot_%28Carl_Larsson%29_-_Nationalmuseum_-_edited.jpg)
+![A sepia-toned photograph of Giacomo Puccini.](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Giacomo_Puccini_%281924%29_-_Archivio_Storico_Ricordi_FOTO003293_-_Restoration.jpg/525px-Giacomo_Puccini_%281924%29_-_Archivio_Storico_Ricordi_FOTO003293_-_Restoration.jpg)
 
-*[Midvinterblot](https://wikipedia.org/wiki/File:Midvinterblot_(Carl_Larsson)_-_Nationalmuseum_-_edited.jpg)*
+*[A sepia-toned photograph of Giacomo Puccini.](https://wikipedia.org/wiki/File:Giacomo_Puccini_(1924)_-_Archivio_Storico_Ricordi_FOTO003293_-_Restoration.jpg)*
