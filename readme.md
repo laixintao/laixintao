@@ -1,4 +1,4 @@
 
-![Green–Meldrim House](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cb/Entrance_Hall_of_Mr_Chas._Green%27s_house%2C_Savannah_Ga%2C_now_occupied_as_Head_Quarters_by_Gen_Sherman.jpg/600px-Entrance_Hall_of_Mr_Chas._Green%27s_house%2C_Savannah_Ga%2C_now_occupied_as_Head_Quarters_by_Gen_Sherman.jpg)
+![Composite map of Palestine assembled from sheets produced by the Survey of Palestine and the Survey of Israel](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Survey_of_Palestine_1942-1958_1-100%2C000_sheet_index_georef.png/375px-Survey_of_Palestine_1942-1958_1-100%2C000_sheet_index_georef.png)
 
-*[Green–Meldrim House](https://wikipedia.org/wiki/File:Entrance_Hall_of_Mr_Chas._Green%27s_house,_Savannah_Ga,_now_occupied_as_Head_Quarters_by_Gen_Sherman.jpg)*
+*[Composite map of Palestine assembled from sheets produced by the Survey of Palestine and the Survey of Israel](https://wikipedia.org/wiki/File:Survey_of_Palestine_1942-1958_1-100,000_sheet_index_georef.png)*
