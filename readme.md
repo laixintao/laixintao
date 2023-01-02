@@ -1,4 +1,4 @@
 
-![Composite map of Palestine assembled from sheets produced by the Survey of Palestine and the Survey of Israel](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Survey_of_Palestine_1942-1958_1-100%2C000_sheet_index_georef.png/375px-Survey_of_Palestine_1942-1958_1-100%2C000_sheet_index_georef.png)
+![Schloss Favorite, Ludwigsburg](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Schloss_Favorite_Ludwigsburg_2017_01.jpg/900px-Schloss_Favorite_Ludwigsburg_2017_01.jpg)
 
-*[Composite map of Palestine assembled from sheets produced by the Survey of Palestine and the Survey of Israel](https://wikipedia.org/wiki/File:Survey_of_Palestine_1942-1958_1-100,000_sheet_index_georef.png)*
+*[Schloss Favorite, Ludwigsburg](https://wikipedia.org/wiki/File:Schloss_Favorite_Ludwigsburg_2017_01.jpg)*
