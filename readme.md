@@ -1,4 +1,4 @@
 
-![Helena Hill Weed](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Harris_%26_Ewing_-_Helena_Hill_Weed.jpg/450px-Harris_%26_Ewing_-_Helena_Hill_Weed.jpg)
+![Elephant's Trunk Nebula](https://upload.wikimedia.org/wikipedia/commons/thumb/1/11/Elephant_Trunk.png/600px-Elephant_Trunk.png)
 
-*[Helena Hill Weed](https://wikipedia.org/wiki/File:Harris_%26_Ewing_-_Helena_Hill_Weed.jpg)*
+*[Elephant's Trunk Nebula](https://wikipedia.org/wiki/File:Elephant_Trunk.png)*
