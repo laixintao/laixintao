@@ -1,4 +1,4 @@
 
-![Elephant's Trunk Nebula](https://upload.wikimedia.org/wikipedia/commons/thumb/1/11/Elephant_Trunk.png/600px-Elephant_Trunk.png)
+![Woodpecker](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Campo_flicker_%28Colaptes_campestris%29_female.JPG/450px-Campo_flicker_%28Colaptes_campestris%29_female.JPG)
 
-*[Elephant's Trunk Nebula](https://wikipedia.org/wiki/File:Elephant_Trunk.png)*
+*[Woodpecker](https://wikipedia.org/wiki/File:Campo_flicker_(Colaptes_campestris)_female.JPG)*
