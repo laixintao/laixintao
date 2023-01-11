@@ -1,4 +1,4 @@
 
-![Woodpecker](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Campo_flicker_%28Colaptes_campestris%29_female.JPG/450px-Campo_flicker_%28Colaptes_campestris%29_female.JPG)
+![Della H. Raney](https://upload.wikimedia.org/wikipedia/commons/thumb/7/77/%22Capt._Della_H._Raney%2C_Army_Nurse_Corps%2C_who_now_heads_the_nursing_staff_at_the_station_hospital_at_Camp_Beale%2C_CA_-_NARA_-_535942.jpg/600px-%22Capt._Della_H._Raney%2C_Army_Nurse_Corps%2C_who_now_heads_the_nursing_staff_at_the_station_hospital_at_Camp_Beale%2C_CA_-_NARA_-_535942.jpg)
 
-*[Woodpecker](https://wikipedia.org/wiki/File:Campo_flicker_(Colaptes_campestris)_female.JPG)*
+*[Della H. Raney](https://wikipedia.org/wiki/File:%22Capt._Della_H._Raney,_Army_Nurse_Corps,_who_now_heads_the_nursing_staff_at_the_station_hospital_at_Camp_Beale,_CA_-_NARA_-_535942.jpg)*
