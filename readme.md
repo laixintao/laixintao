@@ -1,4 +1,4 @@
 
-![Satellite animation of the ash plume and shockwave produced by Hunga Tonga–Hunga Haʻapai](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Tonga_Volcano_Eruption_2022-01-15_0320Z_to_0610Z_Himawari-8_visible.gif/600px-Tonga_Volcano_Eruption_2022-01-15_0320Z_to_0610Z_Himawari-8_visible.gif)
+![Macracantha](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/Macracantha_arcuata_-_Curved_Spiny_Spider_%288550192839%29_by_Rushen_edit.jpg/525px-Macracantha_arcuata_-_Curved_Spiny_Spider_%288550192839%29_by_Rushen_edit.jpg)
 
-*[Satellite animation of the ash plume and shockwave produced by Hunga Tonga–Hunga Haʻapai](https://wikipedia.org/wiki/File:Tonga_Volcano_Eruption_2022-01-15_0320Z_to_0610Z_Himawari-8_visible.gif)*
+*[Macracantha](https://wikipedia.org/wiki/File:Macracantha_arcuata_-_Curved_Spiny_Spider_(8550192839)_by_Rushen_edit.jpg)*
