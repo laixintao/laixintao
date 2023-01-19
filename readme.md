@@ -1,4 +1,4 @@
 
-![Kanayi Kunhiraman](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/Kanayi_Kunhiraman_Image.jpg/600px-Kanayi_Kunhiraman_Image.jpg)
+![Eureka Inn](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Eureka_Inn%2C_Entrance_Hall.jpg/525px-Eureka_Inn%2C_Entrance_Hall.jpg)
 
-*[Kanayi Kunhiraman](https://wikipedia.org/wiki/File:Kanayi_Kunhiraman_Image.jpg)*
+*[Eureka Inn](https://wikipedia.org/wiki/File:Eureka_Inn,_Entrance_Hall.jpg)*
