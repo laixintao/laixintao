@@ -1,4 +1,4 @@
 
-![Eureka Inn](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Eureka_Inn%2C_Entrance_Hall.jpg/525px-Eureka_Inn%2C_Entrance_Hall.jpg)
+![Lady with an Ermine](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f9/Lady_with_an_Ermine_-_Leonardo_da_Vinci_-_Google_Art_Project.jpg/450px-Lady_with_an_Ermine_-_Leonardo_da_Vinci_-_Google_Art_Project.jpg)
 
-*[Eureka Inn](https://wikipedia.org/wiki/File:Eureka_Inn,_Entrance_Hall.jpg)*
+*[Lady with an Ermine](https://wikipedia.org/wiki/File:Lady_with_an_Ermine_-_Leonardo_da_Vinci_-_Google_Art_Project.jpg)*
