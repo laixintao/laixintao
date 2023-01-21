@@ -1,4 +1,4 @@
 
-![Lady with an Ermine](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f9/Lady_with_an_Ermine_-_Leonardo_da_Vinci_-_Google_Art_Project.jpg/450px-Lady_with_an_Ermine_-_Leonardo_da_Vinci_-_Google_Art_Project.jpg)
+![Persicaria maculosa](https://upload.wikimedia.org/wikipedia/commons/thumb/9/92/Persicaria_maculosa.jpg/525px-Persicaria_maculosa.jpg)
 
-*[Lady with an Ermine](https://wikipedia.org/wiki/File:Lady_with_an_Ermine_-_Leonardo_da_Vinci_-_Google_Art_Project.jpg)*
+*[Persicaria maculosa](https://wikipedia.org/wiki/File:Persicaria_maculosa.jpg)*
