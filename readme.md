@@ -1,4 +1,4 @@
 
-![Little bee-eater](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/Little_bee-eater_%28Merops_pusillus_argutus%29_Namibia.jpg/525px-Little_bee-eater_%28Merops_pusillus_argutus%29_Namibia.jpg)
+![Hope II](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7c/Gustav_Klimt_-_Hope%2C_II_-_Google_Art_Project.jpg/600px-Gustav_Klimt_-_Hope%2C_II_-_Google_Art_Project.jpg)
 
-*[Little bee-eater](https://wikipedia.org/wiki/File:Little_bee-eater_(Merops_pusillus_argutus)_Namibia.jpg)*
+*[Hope II](https://wikipedia.org/wiki/File:Gustav_Klimt_-_Hope,_II_-_Google_Art_Project.jpg)*
