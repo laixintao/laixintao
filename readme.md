@@ -1,4 +1,4 @@
 
-![Lawrence Hogan](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Lawrence_Joseph_Hogan_%28restoration%29.jpg/375px-Lawrence_Joseph_Hogan_%28restoration%29.jpg)
+![Frontonia](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/The_ciliate_Frontonia_sp.jpg/525px-The_ciliate_Frontonia_sp.jpg)
 
-*[Lawrence Hogan](https://wikipedia.org/wiki/File:Lawrence_Joseph_Hogan_(restoration).jpg)*
+*[Frontonia](https://wikipedia.org/wiki/File:The_ciliate_Frontonia_sp.jpg)*
