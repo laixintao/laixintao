@@ -1,4 +1,4 @@
 
-![Frontonia](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/The_ciliate_Frontonia_sp.jpg/525px-The_ciliate_Frontonia_sp.jpg)
+![Bengali cuisine](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Pabda_Jhaal_-_Home-_Kolkata_-_West_Bengal.jpg/600px-Pabda_Jhaal_-_Home-_Kolkata_-_West_Bengal.jpg)
 
-*[Frontonia](https://wikipedia.org/wiki/File:The_ciliate_Frontonia_sp.jpg)*
+*[Bengali cuisine](https://wikipedia.org/wiki/File:Pabda_Jhaal_-_Home-_Kolkata_-_West_Bengal.jpg)*
