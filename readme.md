@@ -1,4 +1,4 @@
 
-![Wesley Bell](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ac/Wesley_Bell_2014_-_edit2.jpg/450px-Wesley_Bell_2014_-_edit2.jpg)
+![Library of Congress](https://upload.wikimedia.org/wikipedia/commons/thumb/0/07/Library_of_Congress%2C_Washington%2C_D.C._-_c._1902.jpg/750px-Library_of_Congress%2C_Washington%2C_D.C._-_c._1902.jpg)
 
-*[Wesley Bell](https://wikipedia.org/wiki/File:Wesley_Bell_2014_-_edit2.jpg)*
+*[Library of Congress](https://wikipedia.org/wiki/File:Library_of_Congress,_Washington,_D.C._-_c._1902.jpg)*
