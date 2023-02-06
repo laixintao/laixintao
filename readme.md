@@ -1,4 +1,4 @@
 
-![Geology of the Moon](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/The_geologic_map_of_the_Moon_at_1-2.5M_scale.png/1350px-The_geologic_map_of_the_Moon_at_1-2.5M_scale.png)
+![African grey hornbill](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/African_Grey_Hornbill_%28Lophoceros_nasutus_epirhinus%29_female.jpg/525px-African_Grey_Hornbill_%28Lophoceros_nasutus_epirhinus%29_female.jpg)
 
-*[Geology of the Moon](https://wikipedia.org/wiki/File:The_geologic_map_of_the_Moon_at_1-2.5M_scale.png)*
+*[African grey hornbill](https://wikipedia.org/wiki/File:African_Grey_Hornbill_(Lophoceros_nasutus_epirhinus)_female.jpg)*
