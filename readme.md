@@ -1,4 +1,4 @@
 
-![Suffren](https://upload.wikimedia.org/wikipedia/commons/thumb/0/02/Agence_Rol_-_23-10-11%2C_Toulon%2C_cuirass%C3%A9_Suffren.jpg/750px-Agence_Rol_-_23-10-11%2C_Toulon%2C_cuirass%C3%A9_Suffren.jpg)
+![Himalayan salt](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Himalayan_salt_%28coarse%29.jpg/600px-Himalayan_salt_%28coarse%29.jpg)
 
-*[Suffren](https://wikipedia.org/wiki/File:Agence_Rol_-_23-10-11,_Toulon,_cuirass%C3%A9_Suffren.jpg)*
+*[Himalayan salt](https://wikipedia.org/wiki/File:Himalayan_salt_(coarse).jpg)*
