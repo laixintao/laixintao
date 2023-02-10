@@ -1,4 +1,4 @@
 
-![Himalayan salt](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Himalayan_salt_%28coarse%29.jpg/600px-Himalayan_salt_%28coarse%29.jpg)
+![Henties Bay](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Henties_bay.jpg/750px-Henties_bay.jpg)
 
-*[Himalayan salt](https://wikipedia.org/wiki/File:Himalayan_salt_(coarse).jpg)*
+*[Henties Bay](https://wikipedia.org/wiki/File:Henties_bay.jpg)*
