@@ -1,4 +1,4 @@
 
-![Kremenets](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/%D0%90%D0%BD%D1%81%D0%B0%D0%BC%D0%B1%D0%BB%D1%8C_%D0%BA%D0%BE%D0%BB%D0%B5%D0%B3%D1%96%D1%83%D0%BC%D1%83_%D0%9A%D1%80%D0%B5%D0%BC%D0%B5%D0%BD%D0%B5%D1%86%D1%8C_DSC7894.jpg/750px-%D0%90%D0%BD%D1%81%D0%B0%D0%BC%D0%B1%D0%BB%D1%8C_%D0%BA%D0%BE%D0%BB%D0%B5%D0%B3%D1%96%D1%83%D0%BC%D1%83_%D0%9A%D1%80%D0%B5%D0%BC%D0%B5%D0%BD%D0%B5%D1%86%D1%8C_DSC7894.jpg)
+![Henry Highland Garnet](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Henry_Highland_Garnet_by_James_U._Stead.jpg/525px-Henry_Highland_Garnet_by_James_U._Stead.jpg)
 
-*[Kremenets](https://wikipedia.org/wiki/File:%D0%90%D0%BD%D1%81%D0%B0%D0%BC%D0%B1%D0%BB%D1%8C_%D0%BA%D0%BE%D0%BB%D0%B5%D0%B3%D1%96%D1%83%D0%BC%D1%83_%D0%9A%D1%80%D0%B5%D0%BC%D0%B5%D0%BD%D0%B5%D1%86%D1%8C_DSC7894.jpg)*
+*[Henry Highland Garnet](https://wikipedia.org/wiki/File:Henry_Highland_Garnet_by_James_U._Stead.jpg)*
