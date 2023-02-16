@@ -1,4 +1,4 @@
 
-![The Banquet of Cleopatra](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Giambattista_Tiepolo_-_The_Banquet_of_Cleopatra_-_Google_Art_Project.jpg/750px-Giambattista_Tiepolo_-_The_Banquet_of_Cleopatra_-_Google_Art_Project.jpg)
+!["We Can Do It!"](https://upload.wikimedia.org/wikipedia/commons/thumb/d/df/We_Can_Do_It%21_NARA_535413_-_Restoration_2.jpg/525px-We_Can_Do_It%21_NARA_535413_-_Restoration_2.jpg)
 
-*[The Banquet of Cleopatra](https://wikipedia.org/wiki/File:Giambattista_Tiepolo_-_The_Banquet_of_Cleopatra_-_Google_Art_Project.jpg)*
+*["We Can Do It!"](https://wikipedia.org/wiki/File:We_Can_Do_It!_NARA_535413_-_Restoration_2.jpg)*
