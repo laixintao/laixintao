@@ -1,4 +1,4 @@
 
-!["We Can Do It!"](https://upload.wikimedia.org/wikipedia/commons/thumb/d/df/We_Can_Do_It%21_NARA_535413_-_Restoration_2.jpg/525px-We_Can_Do_It%21_NARA_535413_-_Restoration_2.jpg)
+![Vernon Jordan](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Vernon_E._Jordan_working_on_a_voter_education_project.jpg/600px-Vernon_E._Jordan_working_on_a_voter_education_project.jpg)
 
-*["We Can Do It!"](https://wikipedia.org/wiki/File:We_Can_Do_It!_NARA_535413_-_Restoration_2.jpg)*
+*[Vernon Jordan](https://wikipedia.org/wiki/File:Vernon_E._Jordan_working_on_a_voter_education_project.jpg)*
