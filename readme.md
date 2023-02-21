@@ -1,4 +1,4 @@
 
-![Stopića Cave](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Stopi%C4%87a_Pe%C4%87ina2.jpg/750px-Stopi%C4%87a_Pe%C4%87ina2.jpg)
+![Schematic representation of the human genome](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Human_karyotype_with_bands_and_sub-bands.png/600px-Human_karyotype_with_bands_and_sub-bands.png)
 
-*[Stopića Cave](https://wikipedia.org/wiki/File:Stopi%C4%87a_Pe%C4%87ina2.jpg)*
+*[Schematic representation of the human genome](https://wikipedia.org/wiki/File:Human_karyotype_with_bands_and_sub-bands.png)*
