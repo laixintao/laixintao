@@ -1,4 +1,4 @@
 
-![Robert le diable](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Pierre-Luc-Charles_Cic%C3%A9ri_-_Eug%C3%A8ne_Cic%C3%A9ri_-_Philippe_Benoist_-_Adolphe_Jean_Baptiste_Bayot_-_D%C3%A9corations_de_th%C3%A9%C3%A2tre%2C_Robert_le_diable%2C_3e_act.jpg/525px-Pierre-Luc-Charles_Cic%C3%A9ri_-_Eug%C3%A8ne_Cic%C3%A9ri_-_Philippe_Benoist_-_Adolphe_Jean_Baptiste_Bayot_-_D%C3%A9corations_de_th%C3%A9%C3%A2tre%2C_Robert_le_diable%2C_3e_act.jpg)
+![United States president Barack Obama bends down to allow a boy to touch his head.](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/United_States_President_Barack_Obama_bends_down_to_allow_the_son_of_a_White_House_staff_member_to_touch_his_head.jpg/600px-United_States_President_Barack_Obama_bends_down_to_allow_the_son_of_a_White_House_staff_member_to_touch_his_head.jpg)
 
-*[Robert le diable](https://wikipedia.org/wiki/File:Pierre-Luc-Charles_Cic%C3%A9ri_-_Eug%C3%A8ne_Cic%C3%A9ri_-_Philippe_Benoist_-_Adolphe_Jean_Baptiste_Bayot_-_D%C3%A9corations_de_th%C3%A9%C3%A2tre,_Robert_le_diable,_3e_act.jpg)*
+*[United States president Barack Obama bends down to allow a boy to touch his head.](https://wikipedia.org/wiki/File:United_States_President_Barack_Obama_bends_down_to_allow_the_son_of_a_White_House_staff_member_to_touch_his_head.jpg)*
