@@ -1,4 +1,4 @@
 
-![Physalis peruviana](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/Physalis_peruviana_fruits_close-up.jpg/600px-Physalis_peruviana_fruits_close-up.jpg)
+![Harriet Jacobs](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ee/Gilbert_Studios_photograph_of_Harriet_Jacobs.jpg/450px-Gilbert_Studios_photograph_of_Harriet_Jacobs.jpg)
 
-*[Physalis peruviana](https://wikipedia.org/wiki/File:Physalis_peruviana_fruits_close-up.jpg)*
+*[Harriet Jacobs](https://wikipedia.org/wiki/File:Gilbert_Studios_photograph_of_Harriet_Jacobs.jpg)*
