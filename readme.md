@@ -1,4 +1,4 @@
 
-![The Inquisition Tribunal](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Francisco_de_Goya_-_Escena_de_Inquisici%C3%B3n_-_Google_Art_Project.jpg/750px-Francisco_de_Goya_-_Escena_de_Inquisici%C3%B3n_-_Google_Art_Project.jpg)
+![Blue-billed duck](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Oxyura_australis_male_2_-_Penrith.jpg/675px-Oxyura_australis_male_2_-_Penrith.jpg)
 
-*[The Inquisition Tribunal](https://wikipedia.org/wiki/File:Francisco_de_Goya_-_Escena_de_Inquisici%C3%B3n_-_Google_Art_Project.jpg)*
+*[Blue-billed duck](https://wikipedia.org/wiki/File:Oxyura_australis_male_2_-_Penrith.jpg)*
