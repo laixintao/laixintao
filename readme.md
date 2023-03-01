@@ -1,4 +1,4 @@
 
-![Blue-billed duck](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Oxyura_australis_male_2_-_Penrith.jpg/675px-Oxyura_australis_male_2_-_Penrith.jpg)
+![Katherine Johnson](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/Katherine_Johnson_1983.jpg/525px-Katherine_Johnson_1983.jpg)
 
-*[Blue-billed duck](https://wikipedia.org/wiki/File:Oxyura_australis_male_2_-_Penrith.jpg)*
+*[Katherine Johnson](https://wikipedia.org/wiki/File:Katherine_Johnson_1983.jpg)*
