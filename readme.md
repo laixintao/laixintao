@@ -1,4 +1,4 @@
 
-![Katherine Johnson](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/Katherine_Johnson_1983.jpg/525px-Katherine_Johnson_1983.jpg)
+![Port Hills](https://upload.wikimedia.org/wikipedia/commons/thumb/1/10/Lyttelton_Harbour_%28Whakaraup%C5%8D%29_from_Mt_Ada%2C_Canterbury%2C_New_Zealand.jpg/1350px-Lyttelton_Harbour_%28Whakaraup%C5%8D%29_from_Mt_Ada%2C_Canterbury%2C_New_Zealand.jpg)
 
-*[Katherine Johnson](https://wikipedia.org/wiki/File:Katherine_Johnson_1983.jpg)*
+*[Port Hills](https://wikipedia.org/wiki/File:Lyttelton_Harbour_(Whakaraup%C5%8D)_from_Mt_Ada,_Canterbury,_New_Zealand.jpg)*
