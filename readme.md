@@ -1,4 +1,4 @@
 
-![Isambard Kingdom Brunel](https://upload.wikimedia.org/wikipedia/commons/thumb/6/67/Robert_Howlett_%28Isambard_Kingdom_Brunel_Standing_Before_the_Launching_Chains_of_the_Great_Eastern%29%2C_The_Metropolitan_Museum_of_Art_-_restoration1.jpg/600px-Robert_Howlett_%28Isambard_Kingdom_Brunel_Standing_Before_the_Launching_Chains_of_the_Great_Eastern%29%2C_The_Metropolitan_Museum_of_Art_-_restoration1.jpg)
+![Mohawkite](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Mohawkite.jpg/600px-Mohawkite.jpg)
 
-*[Isambard Kingdom Brunel](https://wikipedia.org/wiki/File:Robert_Howlett_(Isambard_Kingdom_Brunel_Standing_Before_the_Launching_Chains_of_the_Great_Eastern),_The_Metropolitan_Museum_of_Art_-_restoration1.jpg)*
+*[Mohawkite](https://wikipedia.org/wiki/File:Mohawkite.jpg)*
