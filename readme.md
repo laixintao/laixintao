@@ -1,4 +1,4 @@
 
-![Hayden Bridge](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Hayden_Bridge.jpg/600px-Hayden_Bridge.jpg)
+![Marie Stopes](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Marie_Stopes_in_her_laboratory%2C_1904_-_Restoration.jpg/675px-Marie_Stopes_in_her_laboratory%2C_1904_-_Restoration.jpg)
 
-*[Hayden Bridge](https://wikipedia.org/wiki/File:Hayden_Bridge.jpg)*
+*[Marie Stopes](https://wikipedia.org/wiki/File:Marie_Stopes_in_her_laboratory,_1904_-_Restoration.jpg)*
