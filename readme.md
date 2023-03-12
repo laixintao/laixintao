@@ -1,4 +1,4 @@
 
-![Marie Stopes](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Marie_Stopes_in_her_laboratory%2C_1904_-_Restoration.jpg/675px-Marie_Stopes_in_her_laboratory%2C_1904_-_Restoration.jpg)
+![Fishing vessel](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Parked_boats_at_Anjarle_Creek.jpg/600px-Parked_boats_at_Anjarle_Creek.jpg)
 
-*[Marie Stopes](https://wikipedia.org/wiki/File:Marie_Stopes_in_her_laboratory,_1904_-_Restoration.jpg)*
+*[Fishing vessel](https://wikipedia.org/wiki/File:Parked_boats_at_Anjarle_Creek.jpg)*
