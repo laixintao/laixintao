@@ -1,4 +1,4 @@
 
-![Fishing vessel](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Parked_boats_at_Anjarle_Creek.jpg/600px-Parked_boats_at_Anjarle_Creek.jpg)
+![Rhesus macaque](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/Rhesus_macaque_%28Macaca_mulatta_mulatta%29%2C_male%2C_Gokarna.jpg/750px-Rhesus_macaque_%28Macaca_mulatta_mulatta%29%2C_male%2C_Gokarna.jpg)
 
-*[Fishing vessel](https://wikipedia.org/wiki/File:Parked_boats_at_Anjarle_Creek.jpg)*
+*[Rhesus macaque](https://wikipedia.org/wiki/File:Rhesus_macaque_(Macaca_mulatta_mulatta),_male,_Gokarna.jpg)*
