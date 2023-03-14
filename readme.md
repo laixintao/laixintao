@@ -1,4 +1,4 @@
 
-![Rhesus macaque](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/Rhesus_macaque_%28Macaca_mulatta_mulatta%29%2C_male%2C_Gokarna.jpg/750px-Rhesus_macaque_%28Macaca_mulatta_mulatta%29%2C_male%2C_Gokarna.jpg)
+![Olympus OM-D E-M1 Mark III](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Olympus_E-M1_Mark_III_Zuiko_12-100mm.jpg/525px-Olympus_E-M1_Mark_III_Zuiko_12-100mm.jpg)
 
-*[Rhesus macaque](https://wikipedia.org/wiki/File:Rhesus_macaque_(Macaca_mulatta_mulatta),_male,_Gokarna.jpg)*
+*[Olympus OM-D E-M1 Mark III](https://wikipedia.org/wiki/File:Olympus_E-M1_Mark_III_Zuiko_12-100mm.jpg)*
