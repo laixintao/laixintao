@@ -1,4 +1,4 @@
 
-![Olympus OM-D E-M1 Mark III](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Olympus_E-M1_Mark_III_Zuiko_12-100mm.jpg/525px-Olympus_E-M1_Mark_III_Zuiko_12-100mm.jpg)
+![One whole and one halved Golden Delicious apple against a black background](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0f/Golden_Delicious_apples.jpg/600px-Golden_Delicious_apples.jpg)
 
-*[Olympus OM-D E-M1 Mark III](https://wikipedia.org/wiki/File:Olympus_E-M1_Mark_III_Zuiko_12-100mm.jpg)*
+*[One whole and one halved Golden Delicious apple against a black background](https://wikipedia.org/wiki/File:Golden_Delicious_apples.jpg)*
