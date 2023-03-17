@@ -1,4 +1,4 @@
 
-![Ruth Bader Ginsburg](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Ruth_Bader_Ginsburg_2016_portrait.jpg/525px-Ruth_Bader_Ginsburg_2016_portrait.jpg)
+![Agelena labyrinthica](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c4/Labyrinth_spider_%28Agelena_labyrinthica%29_female_in_web_funnel.jpg/525px-Labyrinth_spider_%28Agelena_labyrinthica%29_female_in_web_funnel.jpg)
 
-*[Ruth Bader Ginsburg](https://wikipedia.org/wiki/File:Ruth_Bader_Ginsburg_2016_portrait.jpg)*
+*[Agelena labyrinthica](https://wikipedia.org/wiki/File:Labyrinth_spider_(Agelena_labyrinthica)_female_in_web_funnel.jpg)*
