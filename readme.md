@@ -1,4 +1,4 @@
 
-![Margaret Harwood](https://upload.wikimedia.org/wikipedia/commons/thumb/8/82/Margaret_Harwood.jpg/450px-Margaret_Harwood.jpg)
+![Blue-throated macaw](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/Blue-throated_macaw_in_flight.jpg/750px-Blue-throated_macaw_in_flight.jpg)
 
-*[Margaret Harwood](https://wikipedia.org/wiki/File:Margaret_Harwood.jpg)*
+*[Blue-throated macaw](https://wikipedia.org/wiki/File:Blue-throated_macaw_in_flight.jpg)*
