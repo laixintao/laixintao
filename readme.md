@@ -1,4 +1,4 @@
 
-![Gerty Cori and Carl Ferdinand Cori working in a laboratory](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1a/Gerty_Theresa_Radnitz_Cori_%281896-1957%29_and_Carl_Ferdinand_Cori_-_restoration1.jpg/525px-Gerty_Theresa_Radnitz_Cori_%281896-1957%29_and_Carl_Ferdinand_Cori_-_restoration1.jpg)
+![Annunciation](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fb/Annunciation_-_Jan_van_Eyck_-_1434_-_NG_Wash_DC.jpg/300px-Annunciation_-_Jan_van_Eyck_-_1434_-_NG_Wash_DC.jpg)
 
-*[Gerty Cori and Carl Ferdinand Cori working in a laboratory](https://wikipedia.org/wiki/File:Gerty_Theresa_Radnitz_Cori_(1896-1957)_and_Carl_Ferdinand_Cori_-_restoration1.jpg)*
+*[Annunciation](https://wikipedia.org/wiki/File:Annunciation_-_Jan_van_Eyck_-_1434_-_NG_Wash_DC.jpg)*
