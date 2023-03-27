@@ -1,4 +1,4 @@
 
-![Annunciation](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fb/Annunciation_-_Jan_van_Eyck_-_1434_-_NG_Wash_DC.jpg/300px-Annunciation_-_Jan_van_Eyck_-_1434_-_NG_Wash_DC.jpg)
+![Aerial view of the central shrine of Somapura Mahavihara](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/Aerial_view_of_Somapura_Mahavihara.jpg/750px-Aerial_view_of_Somapura_Mahavihara.jpg)
 
-*[Annunciation](https://wikipedia.org/wiki/File:Annunciation_-_Jan_van_Eyck_-_1434_-_NG_Wash_DC.jpg)*
+*[Aerial view of the central shrine of Somapura Mahavihara](https://wikipedia.org/wiki/File:Aerial_view_of_Somapura_Mahavihara.jpg)*
