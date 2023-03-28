@@ -1,4 +1,4 @@
 
-![Aerial view of the central shrine of Somapura Mahavihara](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/Aerial_view_of_Somapura_Mahavihara.jpg/750px-Aerial_view_of_Somapura_Mahavihara.jpg)
+![Poster for The Fortune Teller](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Alice_Neilsen%27s_production_of_Victor_Herbert%27s_The_Fortune_Teller.jpg/675px-Alice_Neilsen%27s_production_of_Victor_Herbert%27s_The_Fortune_Teller.jpg)
 
-*[Aerial view of the central shrine of Somapura Mahavihara](https://wikipedia.org/wiki/File:Aerial_view_of_Somapura_Mahavihara.jpg)*
+*[Poster for The Fortune Teller](https://wikipedia.org/wiki/File:Alice_Neilsen%27s_production_of_Victor_Herbert%27s_The_Fortune_Teller.jpg)*
