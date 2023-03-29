@@ -1,4 +1,4 @@
 
-![Poster for The Fortune Teller](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Alice_Neilsen%27s_production_of_Victor_Herbert%27s_The_Fortune_Teller.jpg/675px-Alice_Neilsen%27s_production_of_Victor_Herbert%27s_The_Fortune_Teller.jpg)
+![Amilcare Ponchielli](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4f/Amilcare_Ponchielli_%28before_1886%29_-_Archivio_Storico_Ricordi_FOTO000794_-_Restoration.jpg/450px-Amilcare_Ponchielli_%28before_1886%29_-_Archivio_Storico_Ricordi_FOTO000794_-_Restoration.jpg)
 
-*[Poster for The Fortune Teller](https://wikipedia.org/wiki/File:Alice_Neilsen%27s_production_of_Victor_Herbert%27s_The_Fortune_Teller.jpg)*
+*[Amilcare Ponchielli](https://wikipedia.org/wiki/File:Amilcare_Ponchielli_(before_1886)_-_Archivio_Storico_Ricordi_FOTO000794_-_Restoration.jpg)*
