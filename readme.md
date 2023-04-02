@@ -1,4 +1,4 @@
 
-![Jessica Meir](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0d/Jessica_Meir_portrait_in_a_WB-57_flight_suit_%283%29.jpg/450px-Jessica_Meir_portrait_in_a_WB-57_flight_suit_%283%29.jpg)
+![Richard Gerstl](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Richard_Gerstl_-_Selbstbildnis%2C_lachend_-_4035_-_%C3%96sterreichische_Galerie_Belvedere.jpg/525px-Richard_Gerstl_-_Selbstbildnis%2C_lachend_-_4035_-_%C3%96sterreichische_Galerie_Belvedere.jpg)
 
-*[Jessica Meir](https://wikipedia.org/wiki/File:Jessica_Meir_portrait_in_a_WB-57_flight_suit_(3).jpg)*
+*[Richard Gerstl](https://wikipedia.org/wiki/File:Richard_Gerstl_-_Selbstbildnis,_lachend_-_4035_-_%C3%96sterreichische_Galerie_Belvedere.jpg)*
