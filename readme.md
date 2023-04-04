@@ -1,4 +1,4 @@
 
-![Palm cockatoo](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Palm_Cockatoo_0A2A7769.jpg/600px-Palm_Cockatoo_0A2A7769.jpg)
+![Galle Lighthouse](https://upload.wikimedia.org/wikipedia/commons/thumb/5/54/SL_Galle_Fort_asv2020-01_img24.jpg/525px-SL_Galle_Fort_asv2020-01_img24.jpg)
 
-*[Palm cockatoo](https://wikipedia.org/wiki/File:Palm_Cockatoo_0A2A7769.jpg)*
+*[Galle Lighthouse](https://wikipedia.org/wiki/File:SL_Galle_Fort_asv2020-01_img24.jpg)*
