@@ -1,4 +1,4 @@
 
-![Galle Lighthouse](https://upload.wikimedia.org/wikipedia/commons/thumb/5/54/SL_Galle_Fort_asv2020-01_img24.jpg/525px-SL_Galle_Fort_asv2020-01_img24.jpg)
+![Boeing F-15EX Eagle II](https://upload.wikimedia.org/wikipedia/commons/thumb/4/43/F-15EX_Eagle_II.jpg/600px-F-15EX_Eagle_II.jpg)
 
-*[Galle Lighthouse](https://wikipedia.org/wiki/File:SL_Galle_Fort_asv2020-01_img24.jpg)*
+*[Boeing F-15EX Eagle II](https://wikipedia.org/wiki/File:F-15EX_Eagle_II.jpg)*
