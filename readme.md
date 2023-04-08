@@ -1,4 +1,4 @@
 
-![Landscape Arch](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Landscape_Arch_Utah.jpg/825px-Landscape_Arch_Utah.jpg)
+![Crucifixion with the Virgin and St John](https://upload.wikimedia.org/wikipedia/commons/thumb/0/04/Hendrick_ter_Brugghen_The_Crucifixion_with_the_Virgin_and_Saint_John.jpg/450px-Hendrick_ter_Brugghen_The_Crucifixion_with_the_Virgin_and_Saint_John.jpg)
 
-*[Landscape Arch](https://wikipedia.org/wiki/File:Landscape_Arch_Utah.jpg)*
+*[Crucifixion with the Virgin and St John](https://wikipedia.org/wiki/File:Hendrick_ter_Brugghen_The_Crucifixion_with_the_Virgin_and_Saint_John.jpg)*
