@@ -1,4 +1,4 @@
 
-![Crucifixion with the Virgin and St John](https://upload.wikimedia.org/wikipedia/commons/thumb/0/04/Hendrick_ter_Brugghen_The_Crucifixion_with_the_Virgin_and_Saint_John.jpg/450px-Hendrick_ter_Brugghen_The_Crucifixion_with_the_Virgin_and_Saint_John.jpg)
+![First stage of the SpaceX CRS-8 rocket on an ocean landing platform](https://upload.wikimedia.org/wikipedia/commons/thumb/5/54/CRS-8_%2826239020092%29.jpg/750px-CRS-8_%2826239020092%29.jpg)
 
-*[Crucifixion with the Virgin and St John](https://wikipedia.org/wiki/File:Hendrick_ter_Brugghen_The_Crucifixion_with_the_Virgin_and_Saint_John.jpg)*
+*[First stage of the SpaceX CRS-8 rocket on an ocean landing platform](https://wikipedia.org/wiki/File:CRS-8_(26239020092).jpg)*
