@@ -1,4 +1,4 @@
 
-![First stage of the SpaceX CRS-8 rocket on an ocean landing platform](https://upload.wikimedia.org/wikipedia/commons/thumb/5/54/CRS-8_%2826239020092%29.jpg/750px-CRS-8_%2826239020092%29.jpg)
+![Church of the Redeemer](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Church_of_the_Redeemer%2C_Toronto%2C_Canada.jpg/600px-Church_of_the_Redeemer%2C_Toronto%2C_Canada.jpg)
 
-*[First stage of the SpaceX CRS-8 rocket on an ocean landing platform](https://wikipedia.org/wiki/File:CRS-8_(26239020092).jpg)*
+*[Church of the Redeemer](https://wikipedia.org/wiki/File:Church_of_the_Redeemer,_Toronto,_Canada.jpg)*
