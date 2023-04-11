@@ -1,4 +1,4 @@
 
-![Church of the Redeemer](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Church_of_the_Redeemer%2C_Toronto%2C_Canada.jpg/600px-Church_of_the_Redeemer%2C_Toronto%2C_Canada.jpg)
+![Diagram comparing the relative sizes of the spacecraft and rockets of Project Mercury, Project Gemini, and the Apollo program](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/NASA_spacecraft_comparison.jpg/750px-NASA_spacecraft_comparison.jpg)
 
-*[Church of the Redeemer](https://wikipedia.org/wiki/File:Church_of_the_Redeemer,_Toronto,_Canada.jpg)*
+*[Diagram comparing the relative sizes of the spacecraft and rockets of Project Mercury, Project Gemini, and the Apollo program](https://wikipedia.org/wiki/File:NASA_spacecraft_comparison.jpg)*
