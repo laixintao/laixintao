@@ -1,4 +1,4 @@
 
-![Diagram comparing the relative sizes of the spacecraft and rockets of Project Mercury, Project Gemini, and the Apollo program](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/NASA_spacecraft_comparison.jpg/750px-NASA_spacecraft_comparison.jpg)
+![Oriental rug](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Eug%C3%A8ne_Grasset_-_A_La_Place_Clichy.jpg/450px-Eug%C3%A8ne_Grasset_-_A_La_Place_Clichy.jpg)
 
-*[Diagram comparing the relative sizes of the spacecraft and rockets of Project Mercury, Project Gemini, and the Apollo program](https://wikipedia.org/wiki/File:NASA_spacecraft_comparison.jpg)*
+*[Oriental rug](https://wikipedia.org/wiki/File:Eug%C3%A8ne_Grasset_-_A_La_Place_Clichy.jpg)*
