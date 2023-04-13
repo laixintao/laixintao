@@ -1,4 +1,4 @@
 
-![Oriental rug](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Eug%C3%A8ne_Grasset_-_A_La_Place_Clichy.jpg/450px-Eug%C3%A8ne_Grasset_-_A_La_Place_Clichy.jpg)
+![Hermodice carunculata](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0a/Gusano_de_fuego_%28Hermodice_carunculata%29%2C_Madeira%2C_Portugal%2C_2019-05-31%2C_DD_45.jpg/600px-Gusano_de_fuego_%28Hermodice_carunculata%29%2C_Madeira%2C_Portugal%2C_2019-05-31%2C_DD_45.jpg)
 
-*[Oriental rug](https://wikipedia.org/wiki/File:Eug%C3%A8ne_Grasset_-_A_La_Place_Clichy.jpg)*
+*[Hermodice carunculata](https://wikipedia.org/wiki/File:Gusano_de_fuego_(Hermodice_carunculata),_Madeira,_Portugal,_2019-05-31,_DD_45.jpg)*
