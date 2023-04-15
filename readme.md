@@ -1,4 +1,4 @@
 
-![Photograph of the Spiti River valley](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/Spiti_River_Kaza_Himachal_Jun18_D72_7232.jpg/750px-Spiti_River_Kaza_Himachal_Jun18_D72_7232.jpg)
+![C/2022 E3 (ZTF)](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/C2022_E3_%28ZTF%29-_Alessandro_Bianconi.png/750px-C2022_E3_%28ZTF%29-_Alessandro_Bianconi.png)
 
-*[Photograph of the Spiti River valley](https://wikipedia.org/wiki/File:Spiti_River_Kaza_Himachal_Jun18_D72_7232.jpg)*
+*[C/2022 E3 (ZTF)](https://wikipedia.org/wiki/File:C2022_E3_(ZTF)-_Alessandro_Bianconi.png)*
