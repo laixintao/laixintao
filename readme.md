@@ -1,4 +1,4 @@
 
-![Interior of the Soviet submarine B-515](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/2020-09-16_165855_Soviet_submarine_B-515.jpg/900px-2020-09-16_165855_Soviet_submarine_B-515.jpg)
+![Balkan fritillary butterfly](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5d/Balkan_fritillary_%28Boloria_graeca_balcanica%29_underside_Bulgaria.jpg/600px-Balkan_fritillary_%28Boloria_graeca_balcanica%29_underside_Bulgaria.jpg)
 
-*[Interior of the Soviet submarine B-515](https://wikipedia.org/wiki/File:2020-09-16_165855_Soviet_submarine_B-515.jpg)*
+*[Balkan fritillary butterfly](https://wikipedia.org/wiki/File:Balkan_fritillary_(Boloria_graeca_balcanica)_underside_Bulgaria.jpg)*
