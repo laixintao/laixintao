@@ -1,4 +1,4 @@
 
-![Rows of planters at a roof garden at Essex Crossing, New York City](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ef/Rooftop_farm_at_the_Essex_%2865787p%29.jpg/450px-Rooftop_farm_at_the_Essex_%2865787p%29.jpg)
+![Selimiye Mosque, Nicosia](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Nicosia_01-2017_img20_View_from_Shacolas_Tower.jpg/600px-Nicosia_01-2017_img20_View_from_Shacolas_Tower.jpg)
 
-*[Rows of planters at a roof garden at Essex Crossing, New York City](https://wikipedia.org/wiki/File:Rooftop_farm_at_the_Essex_(65787p).jpg)*
+*[Selimiye Mosque, Nicosia](https://wikipedia.org/wiki/File:Nicosia_01-2017_img20_View_from_Shacolas_Tower.jpg)*
