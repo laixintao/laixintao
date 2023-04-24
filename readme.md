@@ -1,4 +1,4 @@
 
-![Selimiye Mosque, Nicosia](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Nicosia_01-2017_img20_View_from_Shacolas_Tower.jpg/600px-Nicosia_01-2017_img20_View_from_Shacolas_Tower.jpg)
+![Duchess Anna Amalia Library](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/Weimar%2C_Herzogin_Anna_Amalia_Bibliothek%2C_2019-09_CN-03.jpg/750px-Weimar%2C_Herzogin_Anna_Amalia_Bibliothek%2C_2019-09_CN-03.jpg)
 
-*[Selimiye Mosque, Nicosia](https://wikipedia.org/wiki/File:Nicosia_01-2017_img20_View_from_Shacolas_Tower.jpg)*
+*[Duchess Anna Amalia Library](https://wikipedia.org/wiki/File:Weimar,_Herzogin_Anna_Amalia_Bibliothek,_2019-09_CN-03.jpg)*
