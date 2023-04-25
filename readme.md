@@ -1,4 +1,4 @@
 
-![Duchess Anna Amalia Library](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/Weimar%2C_Herzogin_Anna_Amalia_Bibliothek%2C_2019-09_CN-03.jpg/750px-Weimar%2C_Herzogin_Anna_Amalia_Bibliothek%2C_2019-09_CN-03.jpg)
+![Crested honey buzzard](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5d/Oriental_honey_buzzard_Mudumalai_Mar21_DSC01405.jpg/450px-Oriental_honey_buzzard_Mudumalai_Mar21_DSC01405.jpg)
 
-*[Duchess Anna Amalia Library](https://wikipedia.org/wiki/File:Weimar,_Herzogin_Anna_Amalia_Bibliothek,_2019-09_CN-03.jpg)*
+*[Crested honey buzzard](https://wikipedia.org/wiki/File:Oriental_honey_buzzard_Mudumalai_Mar21_DSC01405.jpg)*
