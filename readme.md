@@ -1,4 +1,4 @@
 
-![Azurite](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Azurite_-_New_Nevada_Lode%2C_La_Sal%2C_Utah%2C_USA.jpg/600px-Azurite_-_New_Nevada_Lode%2C_La_Sal%2C_Utah%2C_USA.jpg)
+![Panorama of the Western Ghats during the dry season](https://upload.wikimedia.org/wikipedia/commons/thumb/1/18/MatheranPanoramaPointDrySeasonCrop.jpg/900px-MatheranPanoramaPointDrySeasonCrop.jpg)
 
-*[Azurite](https://wikipedia.org/wiki/File:Azurite_-_New_Nevada_Lode,_La_Sal,_Utah,_USA.jpg)*
+*[Panorama of the Western Ghats during the dry season](https://wikipedia.org/wiki/File:MatheranPanoramaPointDrySeasonCrop.jpg)*
