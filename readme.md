@@ -1,4 +1,4 @@
 
-![Panorama of the Western Ghats during the dry season](https://upload.wikimedia.org/wikipedia/commons/thumb/1/18/MatheranPanoramaPointDrySeasonCrop.jpg/900px-MatheranPanoramaPointDrySeasonCrop.jpg)
+![Gabrielle Ray](https://upload.wikimedia.org/wikipedia/en/thumb/d/db/Gabrielle_Ray_%28c._1910%29_-_Archivio_Storico_Ricordi_FOTO002691_-_Restoration.jpg/450px-Gabrielle_Ray_%28c._1910%29_-_Archivio_Storico_Ricordi_FOTO002691_-_Restoration.jpg)
 
-*[Panorama of the Western Ghats during the dry season](https://wikipedia.org/wiki/File:MatheranPanoramaPointDrySeasonCrop.jpg)*
+*[Gabrielle Ray](https://wikipedia.org/wiki/File:Gabrielle_Ray_(c._1910)_-_Archivio_Storico_Ricordi_FOTO002691_-_Restoration.jpg)*
