@@ -1,4 +1,4 @@
 
-![Panavia Tornado](https://upload.wikimedia.org/wikipedia/commons/thumb/2/25/RAF_Tornado_GR4_MOD_45155233.jpg/525px-RAF_Tornado_GR4_MOD_45155233.jpg)
+![Petasites hybridus](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Petasites_hybridus_inflorescence_-_Keila.jpg/450px-Petasites_hybridus_inflorescence_-_Keila.jpg)
 
-*[Panavia Tornado](https://wikipedia.org/wiki/File:RAF_Tornado_GR4_MOD_45155233.jpg)*
+*[Petasites hybridus](https://wikipedia.org/wiki/File:Petasites_hybridus_inflorescence_-_Keila.jpg)*
