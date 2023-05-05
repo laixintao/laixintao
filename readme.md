@@ -1,4 +1,4 @@
 
-![Petasites hybridus](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Petasites_hybridus_inflorescence_-_Keila.jpg/450px-Petasites_hybridus_inflorescence_-_Keila.jpg)
+![The Nimmu–Padum–Darcha road winding through Shingo La](https://upload.wikimedia.org/wikipedia/commons/thumb/1/19/Darcha_Padum_Road_Below_Shinku_La_Lahaul_Oct22_A7C_03533.jpg/600px-Darcha_Padum_Road_Below_Shinku_La_Lahaul_Oct22_A7C_03533.jpg)
 
-*[Petasites hybridus](https://wikipedia.org/wiki/File:Petasites_hybridus_inflorescence_-_Keila.jpg)*
+*[The Nimmu–Padum–Darcha road winding through Shingo La](https://wikipedia.org/wiki/File:Darcha_Padum_Road_Below_Shinku_La_Lahaul_Oct22_A7C_03533.jpg)*
