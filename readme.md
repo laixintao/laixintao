@@ -1,4 +1,4 @@
 
-![Scarlet macaw](https://upload.wikimedia.org/wikipedia/commons/thumb/4/47/Scarlet_macaw_%28Ara_macao_cyanopterus%29_Copan.jpg/750px-Scarlet_macaw_%28Ara_macao_cyanopterus%29_Copan.jpg)
+![Abhayagiri Vihāra](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/SL_Anuradhapura_asv2020-01_img31_Abhayagiriya_Stupa.jpg/525px-SL_Anuradhapura_asv2020-01_img31_Abhayagiriya_Stupa.jpg)
 
-*[Scarlet macaw](https://wikipedia.org/wiki/File:Scarlet_macaw_(Ara_macao_cyanopterus)_Copan.jpg)*
+*[Abhayagiri Vihāra](https://wikipedia.org/wiki/File:SL_Anuradhapura_asv2020-01_img31_Abhayagiriya_Stupa.jpg)*
