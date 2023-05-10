@@ -1,4 +1,4 @@
 
-![Abhayagiri Vihāra](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/SL_Anuradhapura_asv2020-01_img31_Abhayagiriya_Stupa.jpg/525px-SL_Anuradhapura_asv2020-01_img31_Abhayagiriya_Stupa.jpg)
+![La Fuensanta](https://upload.wikimedia.org/wikipedia/commons/thumb/1/17/La_Fuensanta%2C_by_Julio_Romero_de_Torres.jpg/525px-La_Fuensanta%2C_by_Julio_Romero_de_Torres.jpg)
 
-*[Abhayagiri Vihāra](https://wikipedia.org/wiki/File:SL_Anuradhapura_asv2020-01_img31_Abhayagiriya_Stupa.jpg)*
+*[La Fuensanta](https://wikipedia.org/wiki/File:La_Fuensanta,_by_Julio_Romero_de_Torres.jpg)*
