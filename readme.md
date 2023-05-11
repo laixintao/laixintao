@@ -1,4 +1,4 @@
 
-![La Fuensanta](https://upload.wikimedia.org/wikipedia/commons/thumb/1/17/La_Fuensanta%2C_by_Julio_Romero_de_Torres.jpg/525px-La_Fuensanta%2C_by_Julio_Romero_de_Torres.jpg)
+![Palácio Rio Negro](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f8/President%27s_Summer_home%2C_Rio_Negro_Palace%2C_Petr%C3%B3polis%2C_Rio_de_Janeiro.jpg/825px-President%27s_Summer_home%2C_Rio_Negro_Palace%2C_Petr%C3%B3polis%2C_Rio_de_Janeiro.jpg)
 
-*[La Fuensanta](https://wikipedia.org/wiki/File:La_Fuensanta,_by_Julio_Romero_de_Torres.jpg)*
+*[Palácio Rio Negro](https://wikipedia.org/wiki/File:President%27s_Summer_home,_Rio_Negro_Palace,_Petr%C3%B3polis,_Rio_de_Janeiro.jpg)*
