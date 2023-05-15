@@ -1,4 +1,4 @@
 
-![Sagittarius A*](https://upload.wikimedia.org/wikipedia/commons/thumb/9/96/EHT_Saggitarius_A_black_hole.tif/lossy-page1-525px-EHT_Saggitarius_A_black_hole.tif.jpg)
+![Belle Tout Lighthouse](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2f/Seven_Sisters_3.jpg/600px-Seven_Sisters_3.jpg)
 
-*[Sagittarius A*](https://wikipedia.org/wiki/File:EHT_Saggitarius_A_black_hole.tif)*
+*[Belle Tout Lighthouse](https://wikipedia.org/wiki/File:Seven_Sisters_3.jpg)*
