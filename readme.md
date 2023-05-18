@@ -1,4 +1,4 @@
 
-!["The Geography Lesson" or "The Black Spot", a painting depicting students being taught about Alsace–Lorraine](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/The_Geography_Lesson_or_%22The_Black_Spot%22.jpg/825px-The_Geography_Lesson_or_%22The_Black_Spot%22.jpg)
+![Samantha Cristoforetti](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Samantha_Cristoforetti_official_portrait_in_an_EMU_spacesuit.jpg/525px-Samantha_Cristoforetti_official_portrait_in_an_EMU_spacesuit.jpg)
 
-*["The Geography Lesson" or "The Black Spot", a painting depicting students being taught about Alsace–Lorraine](https://wikipedia.org/wiki/File:The_Geography_Lesson_or_%22The_Black_Spot%22.jpg)*
+*[Samantha Cristoforetti](https://wikipedia.org/wiki/File:Samantha_Cristoforetti_official_portrait_in_an_EMU_spacesuit.jpg)*
