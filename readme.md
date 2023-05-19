@@ -1,4 +1,4 @@
 
-![Samantha Cristoforetti](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Samantha_Cristoforetti_official_portrait_in_an_EMU_spacesuit.jpg/525px-Samantha_Cristoforetti_official_portrait_in_an_EMU_spacesuit.jpg)
+![Kumquat](https://upload.wikimedia.org/wikipedia/commons/thumb/7/72/Kumquat_from_Spain.jpg/600px-Kumquat_from_Spain.jpg)
 
-*[Samantha Cristoforetti](https://wikipedia.org/wiki/File:Samantha_Cristoforetti_official_portrait_in_an_EMU_spacesuit.jpg)*
+*[Kumquat](https://wikipedia.org/wiki/File:Kumquat_from_Spain.jpg)*
