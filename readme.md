@@ -1,4 +1,4 @@
 
-![Sándor Vay](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/S%C3%A1ndor_Vay_-_Restoration.jpg/327px-S%C3%A1ndor_Vay_-_Restoration.jpg)
+![The Sleeping Gypsy](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/La_Boh%C3%A9mienne_endormie.jpg/750px-La_Boh%C3%A9mienne_endormie.jpg)
 
-*[Sándor Vay](https://wikipedia.org/wiki/File:S%C3%A1ndor_Vay_-_Restoration.jpg)*
+*[The Sleeping Gypsy](https://wikipedia.org/wiki/File:La_Boh%C3%A9mienne_endormie.jpg)*
