@@ -1,4 +1,4 @@
 
-![Vanadinite](https://upload.wikimedia.org/wikipedia/commons/thumb/2/21/Vanadinite_-_ACF_mine%2C_Mibladen%2C_Morocco.jpg/825px-Vanadinite_-_ACF_mine%2C_Mibladen%2C_Morocco.jpg)
+![K. Sukumaran](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Justice_K._Sukumaran.jpg/375px-Justice_K._Sukumaran.jpg)
 
-*[Vanadinite](https://wikipedia.org/wiki/File:Vanadinite_-_ACF_mine,_Mibladen,_Morocco.jpg)*
+*[K. Sukumaran](https://wikipedia.org/wiki/File:Justice_K._Sukumaran.jpg)*
