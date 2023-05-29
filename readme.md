@@ -1,4 +1,4 @@
 
-![Eurasian brown bear](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Eurasian_brown_bear_%28Ursus_arctos_arctos%29_female_1.jpg/825px-Eurasian_brown_bear_%28Ursus_arctos_arctos%29_female_1.jpg)
+![Head of Bhairava](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Head_of_Bhairava_-_MET_DP307219.jpg/525px-Head_of_Bhairava_-_MET_DP307219.jpg)
 
-*[Eurasian brown bear](https://wikipedia.org/wiki/File:Eurasian_brown_bear_(Ursus_arctos_arctos)_female_1.jpg)*
+*[Head of Bhairava](https://wikipedia.org/wiki/File:Head_of_Bhairava_-_MET_DP307219.jpg)*
