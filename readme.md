@@ -1,4 +1,4 @@
 
-![Rainbow](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/WhereRainbowRises.jpg/450px-WhereRainbowRises.jpg)
+![Western bowerbird](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a0/Western_Bowerbird_0A2A0436.jpg/600px-Western_Bowerbird_0A2A0436.jpg)
 
-*[Rainbow](https://wikipedia.org/wiki/File:WhereRainbowRises.jpg)*
+*[Western bowerbird](https://wikipedia.org/wiki/File:Western_Bowerbird_0A2A0436.jpg)*
