@@ -1,4 +1,4 @@
 
-![Western bowerbird](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a0/Western_Bowerbird_0A2A0436.jpg/600px-Western_Bowerbird_0A2A0436.jpg)
+![NGC 6530](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/Hubble_NGC6530.jpg/600px-Hubble_NGC6530.jpg)
 
-*[Western bowerbird](https://wikipedia.org/wiki/File:Western_Bowerbird_0A2A0436.jpg)*
+*[NGC 6530](https://wikipedia.org/wiki/File:Hubble_NGC6530.jpg)*
