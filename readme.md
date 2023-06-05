@@ -1,4 +1,4 @@
 
-![NGC 6530](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/Hubble_NGC6530.jpg/600px-Hubble_NGC6530.jpg)
+![Key monastery](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/Kee_monastery_Spiti_Valley_%28edited%29.jpg/825px-Kee_monastery_Spiti_Valley_%28edited%29.jpg)
 
-*[NGC 6530](https://wikipedia.org/wiki/File:Hubble_NGC6530.jpg)*
+*[Key monastery](https://wikipedia.org/wiki/File:Kee_monastery_Spiti_Valley_(edited).jpg)*
