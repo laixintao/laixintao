@@ -1,4 +1,4 @@
 
-![Dubrovnik](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9e/1_dubrovnik_pano_-_edit1.jpg/1125px-1_dubrovnik_pano_-_edit1.jpg)
+![1974 aluminum cent](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7c/US-00010-One_Cent_%281974%29_Aluminum.jpg/825px-US-00010-One_Cent_%281974%29_Aluminum.jpg)
 
-*[Dubrovnik](https://wikipedia.org/wiki/File:1_dubrovnik_pano_-_edit1.jpg)*
+*[1974 aluminum cent](https://wikipedia.org/wiki/File:US-00010-One_Cent_(1974)_Aluminum.jpg)*
