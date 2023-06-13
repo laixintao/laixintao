@@ -1,4 +1,4 @@
 
-![1974 aluminum cent](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7c/US-00010-One_Cent_%281974%29_Aluminum.jpg/825px-US-00010-One_Cent_%281974%29_Aluminum.jpg)
+![Ernest Rutherford](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f8/Sir_Ernest_Rutherford_LCCN2014716719_-_restoration1.jpg/450px-Sir_Ernest_Rutherford_LCCN2014716719_-_restoration1.jpg)
 
-*[1974 aluminum cent](https://wikipedia.org/wiki/File:US-00010-One_Cent_(1974)_Aluminum.jpg)*
+*[Ernest Rutherford](https://wikipedia.org/wiki/File:Sir_Ernest_Rutherford_LCCN2014716719_-_restoration1.jpg)*
