@@ -1,4 +1,4 @@
 
-![Ernest Rutherford](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f8/Sir_Ernest_Rutherford_LCCN2014716719_-_restoration1.jpg/450px-Sir_Ernest_Rutherford_LCCN2014716719_-_restoration1.jpg)
+![Walnut](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Walnuts_-_whole_and_open_with_halved_kernel.jpg/599px-Walnuts_-_whole_and_open_with_halved_kernel.jpg)
 
-*[Ernest Rutherford](https://wikipedia.org/wiki/File:Sir_Ernest_Rutherford_LCCN2014716719_-_restoration1.jpg)*
+*[Walnut](https://wikipedia.org/wiki/File:Walnuts_-_whole_and_open_with_halved_kernel.jpg)*
