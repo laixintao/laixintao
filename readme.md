@@ -1,4 +1,4 @@
 
-![Poster for the Seventh Conference of the International Woman Suffrage Alliance](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Poster_by_Anna_So%C3%B3s_Kor%C3%A0nyi_for_the_Seventh_Conference_of_the_International_Woman_Suffrage_Alliance.jpg/525px-Poster_by_Anna_So%C3%B3s_Kor%C3%A0nyi_for_the_Seventh_Conference_of_the_International_Woman_Suffrage_Alliance.jpg)
+![Jasper Francis Cropsey](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Jasper_Francis_Cropsey_by_Napoleon_Sarony.jpg/405px-Jasper_Francis_Cropsey_by_Napoleon_Sarony.jpg)
 
-*[Poster for the Seventh Conference of the International Woman Suffrage Alliance](https://wikipedia.org/wiki/File:Poster_by_Anna_So%C3%B3s_Kor%C3%A0nyi_for_the_Seventh_Conference_of_the_International_Woman_Suffrage_Alliance.jpg)*
+*[Jasper Francis Cropsey](https://wikipedia.org/wiki/File:Jasper_Francis_Cropsey_by_Napoleon_Sarony.jpg)*
