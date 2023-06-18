@@ -1,4 +1,4 @@
 
-![Jasper Francis Cropsey](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Jasper_Francis_Cropsey_by_Napoleon_Sarony.jpg/405px-Jasper_Francis_Cropsey_by_Napoleon_Sarony.jpg)
+![Redhead](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Redhead_in_Central_Park_%2815503%29.jpg/600px-Redhead_in_Central_Park_%2815503%29.jpg)
 
-*[Jasper Francis Cropsey](https://wikipedia.org/wiki/File:Jasper_Francis_Cropsey_by_Napoleon_Sarony.jpg)*
+*[Redhead](https://wikipedia.org/wiki/File:Redhead_in_Central_Park_(15503).jpg)*
