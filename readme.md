@@ -1,4 +1,4 @@
 
-![Redhead](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Redhead_in_Central_Park_%2815503%29.jpg/600px-Redhead_in_Central_Park_%2815503%29.jpg)
+![Boeing KC-46 Pegasus](https://upload.wikimedia.org/wikipedia/commons/thumb/2/29/KC-46_refuels_F-35_20190122.jpg/600px-KC-46_refuels_F-35_20190122.jpg)
 
-*[Redhead](https://wikipedia.org/wiki/File:Redhead_in_Central_Park_(15503).jpg)*
+*[Boeing KC-46 Pegasus](https://wikipedia.org/wiki/File:KC-46_refuels_F-35_20190122.jpg)*
