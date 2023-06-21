@@ -1,4 +1,4 @@
 
-![Tannhäuser](https://upload.wikimedia.org/wikipedia/commons/thumb/9/92/Tavola_5%2C_bozzetto_di_Gebr%C3%BCder_Br%C3%BCckner_per_Tannh%C3%A4user_%28s.d.%29_-_Archivio_Storico_Ricordi_ICON011721_-_Restoration%2C_crop.jpg/599px-Tavola_5%2C_bozzetto_di_Gebr%C3%BCder_Br%C3%BCckner_per_Tannh%C3%A4user_%28s.d.%29_-_Archivio_Storico_Ricordi_ICON011721_-_Restoration%2C_crop.jpg)
+![Ilan Ramon](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Ilan_Ramon%2C_NASA_photo_portrait_in_orange_suit.jpg/450px-Ilan_Ramon%2C_NASA_photo_portrait_in_orange_suit.jpg)
 
-*[Tannhäuser](https://wikipedia.org/wiki/File:Tavola_5,_bozzetto_di_Gebr%C3%BCder_Br%C3%BCckner_per_Tannh%C3%A4user_(s.d.)_-_Archivio_Storico_Ricordi_ICON011721_-_Restoration,_crop.jpg)*
+*[Ilan Ramon](https://wikipedia.org/wiki/File:Ilan_Ramon,_NASA_photo_portrait_in_orange_suit.jpg)*
