@@ -1,4 +1,4 @@
 
-![Bandits' Roost, 59 1/2 Mulberry Street](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/Bandits_Roost%2C_59_and_a_half_Mulberry_Street.jpg/525px-Bandits_Roost%2C_59_and_a_half_Mulberry_Street.jpg)
+![Cerussite](https://upload.wikimedia.org/wikipedia/commons/thumb/2/28/Cerussite_-_Nakhlak_mine%2C_Anarak%2C_Esfahan%2C_Iran.jpg/750px-Cerussite_-_Nakhlak_mine%2C_Anarak%2C_Esfahan%2C_Iran.jpg)
 
-*[Bandits' Roost, 59 1/2 Mulberry Street](https://wikipedia.org/wiki/File:Bandits_Roost,_59_and_a_half_Mulberry_Street.jpg)*
+*[Cerussite](https://wikipedia.org/wiki/File:Cerussite_-_Nakhlak_mine,_Anarak,_Esfahan,_Iran.jpg)*
