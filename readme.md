@@ -1,4 +1,4 @@
 
-![Alcobaça Monastery](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fb/Alcoba%C3%A7a_October_2021-1.jpg/825px-Alcoba%C3%A7a_October_2021-1.jpg)
+![Chatham albatross](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Chatham_Albatross_0A2A3857.jpg/825px-Chatham_Albatross_0A2A3857.jpg)
 
-*[Alcobaça Monastery](https://wikipedia.org/wiki/File:Alcoba%C3%A7a_October_2021-1.jpg)*
+*[Chatham albatross](https://wikipedia.org/wiki/File:Chatham_Albatross_0A2A3857.jpg)*
