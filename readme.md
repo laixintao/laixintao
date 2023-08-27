@@ -1,4 +1,4 @@
 
-![Pobiti Kamani](https://upload.wikimedia.org/wikipedia/commons/thumb/2/25/Bosque_de_Piedra%2C_provincia_de_Varna%2C_Bulgaria%2C_2016-05-27%2C_DD_73.jpg/975px-Bosque_de_Piedra%2C_provincia_de_Varna%2C_Bulgaria%2C_2016-05-27%2C_DD_73.jpg)
+![John Adams](https://upload.wikimedia.org/wikipedia/commons/thumb/f/ff/Gilbert_Stuart%2C_John_Adams%2C_c._1800-1815%2C_NGA_42933.jpg/450px-Gilbert_Stuart%2C_John_Adams%2C_c._1800-1815%2C_NGA_42933.jpg)
 
-*[Pobiti Kamani](https://wikipedia.org/wiki/File:Bosque_de_Piedra,_provincia_de_Varna,_Bulgaria,_2016-05-27,_DD_73.jpg)*
+*[John Adams](https://wikipedia.org/wiki/File:Gilbert_Stuart,_John_Adams,_c._1800-1815,_NGA_42933.jpg)*
