@@ -1,4 +1,4 @@
 
-![John Adams](https://upload.wikimedia.org/wikipedia/commons/thumb/f/ff/Gilbert_Stuart%2C_John_Adams%2C_c._1800-1815%2C_NGA_42933.jpg/450px-Gilbert_Stuart%2C_John_Adams%2C_c._1800-1815%2C_NGA_42933.jpg)
+![Treptowers](https://upload.wikimedia.org/wikipedia/commons/thumb/4/47/Treptowers%2C_Alt-Treptow%2C_Berlin%2C_1705252213%2C_ako.jpg/750px-Treptowers%2C_Alt-Treptow%2C_Berlin%2C_1705252213%2C_ako.jpg)
 
-*[John Adams](https://wikipedia.org/wiki/File:Gilbert_Stuart,_John_Adams,_c._1800-1815,_NGA_42933.jpg)*
+*[Treptowers](https://wikipedia.org/wiki/File:Treptowers,_Alt-Treptow,_Berlin,_1705252213,_ako.jpg)*
