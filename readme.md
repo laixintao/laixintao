@@ -1,4 +1,4 @@
 
-![Arthur Balfour](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Arthur-James-Balfour-1st-Earl-of-Balfour.jpg/450px-Arthur-James-Balfour-1st-Earl-of-Balfour.jpg)
+![The Architect's Dream](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/Thomas_Cole_-_Architect%E2%80%99s_Dream_-_Google_Art_Project.jpg/750px-Thomas_Cole_-_Architect%E2%80%99s_Dream_-_Google_Art_Project.jpg)
 
-*[Arthur Balfour](https://wikipedia.org/wiki/File:Arthur-James-Balfour-1st-Earl-of-Balfour.jpg)*
+*[The Architect's Dream](https://wikipedia.org/wiki/File:Thomas_Cole_-_Architect%E2%80%99s_Dream_-_Google_Art_Project.jpg)*
