@@ -1,4 +1,4 @@
 
-![The Architect's Dream](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/Thomas_Cole_-_Architect%E2%80%99s_Dream_-_Google_Art_Project.jpg/750px-Thomas_Cole_-_Architect%E2%80%99s_Dream_-_Google_Art_Project.jpg)
+![Pholiota squarrosa](https://upload.wikimedia.org/wikipedia/commons/thumb/3/34/Sparrige-Sch%C3%BCppling_%28Pholiota_squarrosa%29.JPG/600px-Sparrige-Sch%C3%BCppling_%28Pholiota_squarrosa%29.JPG)
 
-*[The Architect's Dream](https://wikipedia.org/wiki/File:Thomas_Cole_-_Architect%E2%80%99s_Dream_-_Google_Art_Project.jpg)*
+*[Pholiota squarrosa](https://wikipedia.org/wiki/File:Sparrige-Sch%C3%BCppling_(Pholiota_squarrosa).JPG)*
