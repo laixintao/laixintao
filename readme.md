@@ -1,4 +1,4 @@
 
-![Two cheetah cubs grooming by licking each other](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Cheetah_Brothers_AdF.jpg/750px-Cheetah_Brothers_AdF.jpg)
+![Plasma](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Plasma_globe_60th.jpg/600px-Plasma_globe_60th.jpg)
 
-*[Two cheetah cubs grooming by licking each other](https://wikipedia.org/wiki/File:Cheetah_Brothers_AdF.jpg)*
+*[Plasma](https://wikipedia.org/wiki/File:Plasma_globe_60th.jpg)*
