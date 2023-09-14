@@ -1,4 +1,4 @@
 
-![Captain Moonlite](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Andrew_George_Scott%2C_alias_Captain_Moonlite.jpg/450px-Andrew_George_Scott%2C_alias_Captain_Moonlite.jpg)
+![Oslo I Accord](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/Flickr_-_Government_Press_Office_%28GPO%29_-_THE_NOBEL_PEACE_PRIZE_LAUREATES_FOR_1994_IN_OSLO..jpg/600px-Flickr_-_Government_Press_Office_%28GPO%29_-_THE_NOBEL_PEACE_PRIZE_LAUREATES_FOR_1994_IN_OSLO..jpg)
 
-*[Captain Moonlite](https://wikipedia.org/wiki/File:Andrew_George_Scott,_alias_Captain_Moonlite.jpg)*
+*[Oslo I Accord](https://wikipedia.org/wiki/File:Flickr_-_Government_Press_Office_(GPO)_-_THE_NOBEL_PEACE_PRIZE_LAUREATES_FOR_1994_IN_OSLO..jpg)*
