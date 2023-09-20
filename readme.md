@@ -1,4 +1,4 @@
 
-![Five views of a Haliotis kamtschatkana shell](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/Haliotis_kamtschatkana_assimilis_01.JPG/750px-Haliotis_kamtschatkana_assimilis_01.JPG)
+![Mabel Vernon](https://upload.wikimedia.org/wikipedia/commons/thumb/5/58/Mabel_Vernon%2C_c._1917%2C_by_Edmonston%2C_Washington%2C_D.C..jpg/525px-Mabel_Vernon%2C_c._1917%2C_by_Edmonston%2C_Washington%2C_D.C..jpg)
 
-*[Five views of a Haliotis kamtschatkana shell](https://wikipedia.org/wiki/File:Haliotis_kamtschatkana_assimilis_01.JPG)*
+*[Mabel Vernon](https://wikipedia.org/wiki/File:Mabel_Vernon,_c._1917,_by_Edmonston,_Washington,_D.C..jpg)*
