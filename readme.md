@@ -1,4 +1,4 @@
 
-![Mabel Vernon](https://upload.wikimedia.org/wikipedia/commons/thumb/5/58/Mabel_Vernon%2C_c._1917%2C_by_Edmonston%2C_Washington%2C_D.C..jpg/525px-Mabel_Vernon%2C_c._1917%2C_by_Edmonston%2C_Washington%2C_D.C..jpg)
+![1990 Nepalese revolution](https://upload.wikimedia.org/wikipedia/commons/thumb/b/be/An_Iconic_Photograph_of_1990_Nepalese_revolution.jpg/525px-An_Iconic_Photograph_of_1990_Nepalese_revolution.jpg)
 
-*[Mabel Vernon](https://wikipedia.org/wiki/File:Mabel_Vernon,_c._1917,_by_Edmonston,_Washington,_D.C..jpg)*
+*[1990 Nepalese revolution](https://wikipedia.org/wiki/File:An_Iconic_Photograph_of_1990_Nepalese_revolution.jpg)*
