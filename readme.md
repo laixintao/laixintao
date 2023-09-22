@@ -1,4 +1,4 @@
 
-![1990 Nepalese revolution](https://upload.wikimedia.org/wikipedia/commons/thumb/b/be/An_Iconic_Photograph_of_1990_Nepalese_revolution.jpg/525px-An_Iconic_Photograph_of_1990_Nepalese_revolution.jpg)
+![Close-up photograph of a Spathiphyllum wallisii inflorescence](https://upload.wikimedia.org/wikipedia/commons/thumb/4/49/Peace_lily_-_1_-_cropped.jpg/375px-Peace_lily_-_1_-_cropped.jpg)
 
-*[1990 Nepalese revolution](https://wikipedia.org/wiki/File:An_Iconic_Photograph_of_1990_Nepalese_revolution.jpg)*
+*[Close-up photograph of a Spathiphyllum wallisii inflorescence](https://wikipedia.org/wiki/File:Peace_lily_-_1_-_cropped.jpg)*
