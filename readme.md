@@ -1,4 +1,4 @@
 
-![Close-up photograph of a Spathiphyllum wallisii inflorescence](https://upload.wikimedia.org/wikipedia/commons/thumb/4/49/Peace_lily_-_1_-_cropped.jpg/375px-Peace_lily_-_1_-_cropped.jpg)
+![Common buzzard](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Steppe_buzzard_%28Buteo_buteo_vulpinus%29.jpg/450px-Steppe_buzzard_%28Buteo_buteo_vulpinus%29.jpg)
 
-*[Close-up photograph of a Spathiphyllum wallisii inflorescence](https://wikipedia.org/wiki/File:Peace_lily_-_1_-_cropped.jpg)*
+*[Common buzzard](https://wikipedia.org/wiki/File:Steppe_buzzard_(Buteo_buteo_vulpinus).jpg)*
