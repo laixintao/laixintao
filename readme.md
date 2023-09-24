@@ -1,4 +1,4 @@
 
-![Common buzzard](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Steppe_buzzard_%28Buteo_buteo_vulpinus%29.jpg/450px-Steppe_buzzard_%28Buteo_buteo_vulpinus%29.jpg)
+![Victoria Woodhull](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Victoria_Claflin_Woodhull_by_Mathew_Brady_-_Oval_Portrait.jpg/450px-Victoria_Claflin_Woodhull_by_Mathew_Brady_-_Oval_Portrait.jpg)
 
-*[Common buzzard](https://wikipedia.org/wiki/File:Steppe_buzzard_(Buteo_buteo_vulpinus).jpg)*
+*[Victoria Woodhull](https://wikipedia.org/wiki/File:Victoria_Claflin_Woodhull_by_Mathew_Brady_-_Oval_Portrait.jpg)*
