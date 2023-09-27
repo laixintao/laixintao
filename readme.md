@@ -1,4 +1,4 @@
 
-![Savonia railway](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/VR_Sr1_3015_Kuopio_Drawbridge.jpg/600px-VR_Sr1_3015_Kuopio_Drawbridge.jpg)
+![Edward Bouchet](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Edward_Alexander_Bouchet_Yale_College_class_of_1874.jpg/450px-Edward_Alexander_Bouchet_Yale_College_class_of_1874.jpg)
 
-*[Savonia railway](https://wikipedia.org/wiki/File:VR_Sr1_3015_Kuopio_Drawbridge.jpg)*
+*[Edward Bouchet](https://wikipedia.org/wiki/File:Edward_Alexander_Bouchet_Yale_College_class_of_1874.jpg)*
