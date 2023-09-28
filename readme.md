@@ -1,4 +1,4 @@
 
-![Edward Bouchet](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Edward_Alexander_Bouchet_Yale_College_class_of_1874.jpg/450px-Edward_Alexander_Bouchet_Yale_College_class_of_1874.jpg)
+![Exterior of the Kaohsiung Music Center illuminated at night and reflected in water](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/Kaohsiung_Music_Center_and_Great_Tiger_Bridge_during_2022_Taiwan_Lantern_Festival.jpg/750px-Kaohsiung_Music_Center_and_Great_Tiger_Bridge_during_2022_Taiwan_Lantern_Festival.jpg)
 
-*[Edward Bouchet](https://wikipedia.org/wiki/File:Edward_Alexander_Bouchet_Yale_College_class_of_1874.jpg)*
+*[Exterior of the Kaohsiung Music Center illuminated at night and reflected in water](https://wikipedia.org/wiki/File:Kaohsiung_Music_Center_and_Great_Tiger_Bridge_during_2022_Taiwan_Lantern_Festival.jpg)*
