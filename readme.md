@@ -1,4 +1,4 @@
 
-![Part of the façade of the Unité d'Habitation of Berlin](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ed/Corbusierhaus%2C_Berlin-msu-2021-2276-.jpg/600px-Corbusierhaus%2C_Berlin-msu-2021-2276-.jpg)
+![Self-portrait of Giuseppe Arcimboldo](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Giuseppe_Arcimboldo_-_Self_Portrait_-_Google_Art_Project.jpg/450px-Giuseppe_Arcimboldo_-_Self_Portrait_-_Google_Art_Project.jpg)
 
-*[Part of the façade of the Unité d'Habitation of Berlin](https://wikipedia.org/wiki/File:Corbusierhaus,_Berlin-msu-2021-2276-.jpg)*
+*[Self-portrait of Giuseppe Arcimboldo](https://wikipedia.org/wiki/File:Giuseppe_Arcimboldo_-_Self_Portrait_-_Google_Art_Project.jpg)*
