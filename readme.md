@@ -1,4 +1,4 @@
 
-![Self-portrait of Giuseppe Arcimboldo](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Giuseppe_Arcimboldo_-_Self_Portrait_-_Google_Art_Project.jpg/450px-Giuseppe_Arcimboldo_-_Self_Portrait_-_Google_Art_Project.jpg)
+![Polistes gallicus](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a9/Wespe_auf_Bl%C3%BCtenbl%C3%A4ttern-20200905-RM-081907.jpg/600px-Wespe_auf_Bl%C3%BCtenbl%C3%A4ttern-20200905-RM-081907.jpg)
 
-*[Self-portrait of Giuseppe Arcimboldo](https://wikipedia.org/wiki/File:Giuseppe_Arcimboldo_-_Self_Portrait_-_Google_Art_Project.jpg)*
+*[Polistes gallicus](https://wikipedia.org/wiki/File:Wespe_auf_Bl%C3%BCtenbl%C3%A4ttern-20200905-RM-081907.jpg)*
