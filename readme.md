@@ -1,4 +1,4 @@
 
-![Moreton Bay](https://upload.wikimedia.org/wikipedia/commons/thumb/5/54/Sandy_Shores_of_Moreton_Bay.jpg/825px-Sandy_Shores_of_Moreton_Bay.jpg)
+![Agrius cingulata](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Pink-spotted_hawk_moth_%28Agrius_cingulata%29_male.jpg/525px-Pink-spotted_hawk_moth_%28Agrius_cingulata%29_male.jpg)
 
-*[Moreton Bay](https://wikipedia.org/wiki/File:Sandy_Shores_of_Moreton_Bay.jpg)*
+*[Agrius cingulata](https://wikipedia.org/wiki/File:Pink-spotted_hawk_moth_(Agrius_cingulata)_male.jpg)*
