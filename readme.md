@@ -1,4 +1,4 @@
 
-![Radiated tortoise](https://upload.wikimedia.org/wikipedia/commons/thumb/9/92/Radiated_tortoise_%28Astrochelys_radiata%29_Tsimanampetsotsa.jpg/480px-Radiated_tortoise_%28Astrochelys_radiata%29_Tsimanampetsotsa.jpg)
+![Granville Stuart](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Granville_Stuart_1883_by_L._A._Huffman.jpg/390px-Granville_Stuart_1883_by_L._A._Huffman.jpg)
 
-*[Radiated tortoise](https://wikipedia.org/wiki/File:Radiated_tortoise_(Astrochelys_radiata)_Tsimanampetsotsa.jpg)*
+*[Granville Stuart](https://wikipedia.org/wiki/File:Granville_Stuart_1883_by_L._A._Huffman.jpg)*
