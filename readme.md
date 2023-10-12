@@ -1,4 +1,4 @@
 
-![Granville Stuart](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Granville_Stuart_1883_by_L._A._Huffman.jpg/390px-Granville_Stuart_1883_by_L._A._Huffman.jpg)
+![AG Carinae](https://upload.wikimedia.org/wikipedia/commons/thumb/9/97/A_magnificent_view_of_AG_Carinae.jpg/900px-A_magnificent_view_of_AG_Carinae.jpg)
 
-*[Granville Stuart](https://wikipedia.org/wiki/File:Granville_Stuart_1883_by_L._A._Huffman.jpg)*
+*[AG Carinae](https://wikipedia.org/wiki/File:A_magnificent_view_of_AG_Carinae.jpg)*
