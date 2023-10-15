@@ -1,4 +1,4 @@
 
-![Sea Girt Light](https://upload.wikimedia.org/wikipedia/commons/thumb/9/93/Sea_Girt_Lighthouse_October_2020.jpg/825px-Sea_Girt_Lighthouse_October_2020.jpg)
+![Plate 2 of Ignace-Gaston Pardies's celestial atlas](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0a/Ignace_Gaston_Pardies-Plate_2.jpg/750px-Ignace_Gaston_Pardies-Plate_2.jpg)
 
-*[Sea Girt Light](https://wikipedia.org/wiki/File:Sea_Girt_Lighthouse_October_2020.jpg)*
+*[Plate 2 of Ignace-Gaston Pardies's celestial atlas](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_2.jpg)*
