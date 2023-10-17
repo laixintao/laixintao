@@ -1,4 +1,4 @@
 
-![Plate 2 of Ignace-Gaston Pardies's celestial atlas](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0a/Ignace_Gaston_Pardies-Plate_2.jpg/750px-Ignace_Gaston_Pardies-Plate_2.jpg)
+![A black and white photograph of the Holmdel Horn Antenna](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Horn_Antenna-in_Holmdel%2C_New_Jersey_-_restoration1.jpg/600px-Horn_Antenna-in_Holmdel%2C_New_Jersey_-_restoration1.jpg)
 
-*[Plate 2 of Ignace-Gaston Pardies's celestial atlas](https://wikipedia.org/wiki/File:Ignace_Gaston_Pardies-Plate_2.jpg)*
+*[A black and white photograph of the Holmdel Horn Antenna](https://wikipedia.org/wiki/File:Horn_Antenna-in_Holmdel,_New_Jersey_-_restoration1.jpg)*
