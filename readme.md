@@ -1,4 +1,4 @@
 
-![A black and white photograph of the Holmdel Horn Antenna](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Horn_Antenna-in_Holmdel%2C_New_Jersey_-_restoration1.jpg/600px-Horn_Antenna-in_Holmdel%2C_New_Jersey_-_restoration1.jpg)
+![Fausta Labia](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/Fausta_Labia%2C_portr%C3%A4tt_-_SMV_-_H5_028_-_Restoration.jpg/450px-Fausta_Labia%2C_portr%C3%A4tt_-_SMV_-_H5_028_-_Restoration.jpg)
 
-*[A black and white photograph of the Holmdel Horn Antenna](https://wikipedia.org/wiki/File:Horn_Antenna-in_Holmdel,_New_Jersey_-_restoration1.jpg)*
+*[Fausta Labia](https://wikipedia.org/wiki/File:Fausta_Labia,_portr%C3%A4tt_-_SMV_-_H5_028_-_Restoration.jpg)*
