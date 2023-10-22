@@ -1,4 +1,4 @@
 
-![Fred Sullivan](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Fred_Sullivan_by_Oliver_Sarony.jpg/450px-Fred_Sullivan_by_Oliver_Sarony.jpg)
+![Heliconius charithonia](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Heliconius_charithonia_2021.jpg/600px-Heliconius_charithonia_2021.jpg)
 
-*[Fred Sullivan](https://wikipedia.org/wiki/File:Fred_Sullivan_by_Oliver_Sarony.jpg)*
+*[Heliconius charithonia](https://wikipedia.org/wiki/File:Heliconius_charithonia_2021.jpg)*
