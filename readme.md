@@ -1,4 +1,4 @@
 
-![Heliconius charithonia](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Heliconius_charithonia_2021.jpg/600px-Heliconius_charithonia_2021.jpg)
+![Blue Horse I](https://upload.wikimedia.org/wikipedia/commons/thumb/8/82/Marc%2C_Franz_-_Blue_Horse_I_-_Google_Art_Project.jpg/435px-Marc%2C_Franz_-_Blue_Horse_I_-_Google_Art_Project.jpg)
 
-*[Heliconius charithonia](https://wikipedia.org/wiki/File:Heliconius_charithonia_2021.jpg)*
+*[Blue Horse I](https://wikipedia.org/wiki/File:Marc,_Franz_-_Blue_Horse_I_-_Google_Art_Project.jpg)*
