@@ -1,4 +1,4 @@
 
-![Red-tailed squirrel](https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Red-tailed_squirrel_%28Sciurus_granatensis_chrysuros%29_male_Caldas.jpg/600px-Red-tailed_squirrel_%28Sciurus_granatensis_chrysuros%29_male_Caldas.jpg)
+![Louis Blanc](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a1/Louis_Blanc_by_Carjat_1848.jpg/525px-Louis_Blanc_by_Carjat_1848.jpg)
 
-*[Red-tailed squirrel](https://wikipedia.org/wiki/File:Red-tailed_squirrel_(Sciurus_granatensis_chrysuros)_male_Caldas.jpg)*
+*[Louis Blanc](https://wikipedia.org/wiki/File:Louis_Blanc_by_Carjat_1848.jpg)*
