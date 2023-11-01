@@ -1,4 +1,4 @@
 
-![Fumarole mineral](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7b/Tazieffite_-_Mutnovsky_volcano%2C_Kamchatka%2C_Russia_%28Color_SEM%29.jpg/600px-Tazieffite_-_Mutnovsky_volcano%2C_Kamchatka%2C_Russia_%28Color_SEM%29.jpg)
+![Juniperus brevifolia](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Lagoa_do_Capit%C3%A3o_com_montanha_do_pico.jpg/825px-Lagoa_do_Capit%C3%A3o_com_montanha_do_pico.jpg)
 
-*[Fumarole mineral](https://wikipedia.org/wiki/File:Tazieffite_-_Mutnovsky_volcano,_Kamchatka,_Russia_(Color_SEM).jpg)*
+*[Juniperus brevifolia](https://wikipedia.org/wiki/File:Lagoa_do_Capit%C3%A3o_com_montanha_do_pico.jpg)*
