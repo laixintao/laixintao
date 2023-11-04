@@ -1,4 +1,4 @@
 
-![Brown pelican](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Brown_pelican_in_flight_%28Bodega_Bay%29.jpg/750px-Brown_pelican_in_flight_%28Bodega_Bay%29.jpg)
+![Warming stripes for annual mean global temperatures from 1850 to 2018](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/20181204_Warming_stripes_%28global%2C_WMO%2C_1850-2018%29_-_Climate_Lab_Book_%28Ed_Hawkins%29.png/900px-20181204_Warming_stripes_%28global%2C_WMO%2C_1850-2018%29_-_Climate_Lab_Book_%28Ed_Hawkins%29.png)
 
-*[Brown pelican](https://wikipedia.org/wiki/File:Brown_pelican_in_flight_(Bodega_Bay).jpg)*
+*[Warming stripes for annual mean global temperatures from 1850 to 2018](https://wikipedia.org/wiki/File:20181204_Warming_stripes_(global,_WMO,_1850-2018)_-_Climate_Lab_Book_(Ed_Hawkins).png)*
