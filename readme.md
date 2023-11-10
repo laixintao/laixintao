@@ -1,4 +1,4 @@
 
-![Field sparrow](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/Field_sparrow_in_CP_%2841484%29_%28cropped%29.jpg/540px-Field_sparrow_in_CP_%2841484%29_%28cropped%29.jpg)
+![West Virginia](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b7/West_Virginia_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/630px-West_Virginia_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
 
-*[Field sparrow](https://wikipedia.org/wiki/File:Field_sparrow_in_CP_(41484)_(cropped).jpg)*
+*[West Virginia](https://wikipedia.org/wiki/File:West_Virginia_state_coat_of_arms_(illustrated,_1876).jpg)*
