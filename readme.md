@@ -1,4 +1,4 @@
 
-![Sketch of the Cenotaph's front and end elevations](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Cenotaph_sketch_by_Lutyens.jpg/900px-Cenotaph_sketch_by_Lutyens.jpg)
+![Marie Curie](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c8/Marie_Curie_c._1920s.jpg/525px-Marie_Curie_c._1920s.jpg)
 
-*[Sketch of the Cenotaph's front and end elevations](https://wikipedia.org/wiki/File:Cenotaph_sketch_by_Lutyens.jpg)*
+*[Marie Curie](https://wikipedia.org/wiki/File:Marie_Curie_c._1920s.jpg)*
