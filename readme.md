@@ -1,4 +1,4 @@
 
-![Sargocentron xantherythrum](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Red_Fish_at_Papah%C4%81naumoku%C4%81kea_%28cropped%29.jpg/600px-Red_Fish_at_Papah%C4%81naumoku%C4%81kea_%28cropped%29.jpg)
+![Rani ki vav](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/Rani_ki_vav_-_Patan_-_Gujarat_-_Wall_Decorations.jpg/599px-Rani_ki_vav_-_Patan_-_Gujarat_-_Wall_Decorations.jpg)
 
-*[Sargocentron xantherythrum](https://wikipedia.org/wiki/File:Red_Fish_at_Papah%C4%81naumoku%C4%81kea_(cropped).jpg)*
+*[Rani ki vav](https://wikipedia.org/wiki/File:Rani_ki_vav_-_Patan_-_Gujarat_-_Wall_Decorations.jpg)*
