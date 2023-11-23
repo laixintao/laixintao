@@ -1,4 +1,4 @@
 
-![Male](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Male_northern_cardinal_in_Central_Park_%2852612%29.jpg/514px-Male_northern_cardinal_in_Central_Park_%2852612%29.jpg)
+![John F. Kennedy and others ride in a black roofless Lincoln Continental convertible down a street lined with spectators, flanked by police officers on motorcycles, and followed by Secret Service officers.](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/JFK_limousine.png/600px-JFK_limousine.png)
 
-*[Male](https://wikipedia.org/wiki/File:Male_northern_cardinal_in_Central_Park_(52612).jpg)*
+*[John F. Kennedy and others ride in a black roofless Lincoln Continental convertible down a street lined with spectators, flanked by police officers on motorcycles, and followed by Secret Service officers.](https://wikipedia.org/wiki/File:JFK_limousine.png)*
