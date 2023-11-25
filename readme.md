@@ -1,4 +1,4 @@
 
-![Argiope versicolor](https://upload.wikimedia.org/wikipedia/commons/thumb/6/65/Argiope_spider_female_adult_on_her_web_ventral_view_black_background_Don_Det_Laos.jpg/450px-Argiope_spider_female_adult_on_her_web_ventral_view_black_background_Don_Det_Laos.jpg)
+![Doris Miller](https://upload.wikimedia.org/wikipedia/commons/thumb/2/28/Dorie_Miller_-_Restoration%2C_full.jpg/525px-Dorie_Miller_-_Restoration%2C_full.jpg)
 
-*[Argiope versicolor](https://wikipedia.org/wiki/File:Argiope_spider_female_adult_on_her_web_ventral_view_black_background_Don_Det_Laos.jpg)*
+*[Doris Miller](https://wikipedia.org/wiki/File:Dorie_Miller_-_Restoration,_full.jpg)*
