@@ -1,4 +1,4 @@
 
-![Doris Miller](https://upload.wikimedia.org/wikipedia/commons/thumb/2/28/Dorie_Miller_-_Restoration%2C_full.jpg/525px-Dorie_Miller_-_Restoration%2C_full.jpg)
+![Long-crested eagle](https://upload.wikimedia.org/wikipedia/commons/thumb/3/38/Long-crested_eagle_%28Lophaetus_occipitalis%29_3.jpg/525px-Long-crested_eagle_%28Lophaetus_occipitalis%29_3.jpg)
 
-*[Doris Miller](https://wikipedia.org/wiki/File:Dorie_Miller_-_Restoration,_full.jpg)*
+*[Long-crested eagle](https://wikipedia.org/wiki/File:Long-crested_eagle_(Lophaetus_occipitalis)_3.jpg)*
