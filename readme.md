@@ -1,4 +1,4 @@
 
-![Long-crested eagle](https://upload.wikimedia.org/wikipedia/commons/thumb/3/38/Long-crested_eagle_%28Lophaetus_occipitalis%29_3.jpg/525px-Long-crested_eagle_%28Lophaetus_occipitalis%29_3.jpg)
+![Ike & Tina Turner](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/Ike_%26_Tina_Turner%2C_Bestanddeelnr_924-2170_-_Restoration.jpg/750px-Ike_%26_Tina_Turner%2C_Bestanddeelnr_924-2170_-_Restoration.jpg)
 
-*[Long-crested eagle](https://wikipedia.org/wiki/File:Long-crested_eagle_(Lophaetus_occipitalis)_3.jpg)*
+*[Ike & Tina Turner](https://wikipedia.org/wiki/File:Ike_%26_Tina_Turner,_Bestanddeelnr_924-2170_-_Restoration.jpg)*
