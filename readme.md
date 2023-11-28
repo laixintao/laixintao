@@ -1,4 +1,4 @@
 
-![Ike & Tina Turner](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/Ike_%26_Tina_Turner%2C_Bestanddeelnr_924-2170_-_Restoration.jpg/750px-Ike_%26_Tina_Turner%2C_Bestanddeelnr_924-2170_-_Restoration.jpg)
+![Aragonite](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ef/Aragonite_crystal_-_Los_Molinillos%2C_Ceunca%2C_Spain_-_4x3.6x3.5cm_100g.jpg/600px-Aragonite_crystal_-_Los_Molinillos%2C_Ceunca%2C_Spain_-_4x3.6x3.5cm_100g.jpg)
 
-*[Ike & Tina Turner](https://wikipedia.org/wiki/File:Ike_%26_Tina_Turner,_Bestanddeelnr_924-2170_-_Restoration.jpg)*
+*[Aragonite](https://wikipedia.org/wiki/File:Aragonite_crystal_-_Los_Molinillos,_Ceunca,_Spain_-_4x3.6x3.5cm_100g.jpg)*
